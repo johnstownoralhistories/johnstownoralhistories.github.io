@@ -1,1 +1,18 @@
+---
+layout: item
+format: document
+title: "Alexis Shoulta CV"
+author: "Johnstown Oral Histories"
+contributor: "Alexis Shoulta"
+group: "IUB-OC"
+creator: "Alexis Shoulta"
+externalurl:
+embedurl: 
+creationdate: 2025-01-22
+type: "CV"
+shortdesc: "This is Alexis Shoulta Seeing if she can also upload a document."
+categories: [ College, Alexis, Document ]
+tags: [  ]
+teammember: Alexis Shoulta
+---
 
