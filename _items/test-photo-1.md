@@ -19,8 +19,8 @@ teammember: Lexie Shoulta
 
 ## About This Item
 
-This is a sample item showing an image of a turqoise hat with the Grateful Dead dancing bears logo on it.
+Olivia Wilder, doing yoga at Union Street Cedar.
 
 ## From the Contributor
 
-This is sample text about what you would see from a contributor describing this item.
+Alexis Shoulta took this photo as practice for a media school class on a borrowed DSLR.
