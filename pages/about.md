@@ -1,6 +1,6 @@
 ---
 title: About Johnstown
-layout: about
+layout: page
 permalink: /about
 ---
 
