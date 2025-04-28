@@ -20,7 +20,7 @@ teammember: "Alexis Shoulta"
 
 Ruth Demko was interviewed by her granddaughter Alexis Shoulta in Greenwood, Indiana, on April 27, 2025. 
 
-She recalls her experiences as a stay-at-home mother taking care of three children while her husband worked in the steel mills. She describes personal and financial decisions she made in response to the economic uncertainty with her husband's work at the steel mill. One notable example is that she requested her second pregnancy to be induced to avoid the risk of going into labour while uninsured at a later date. She describes the decision-making behind the family's relocation from Johnstown, Pennsylvania, to Terre Haute, Indiana, in 1981.
+She recalls her experiences as a stay-at-home mother taking care of three children while her husband worked in the steel mills. She describes personal and financial decisions she made in response to the economic uncertainty with her husband's work. One notable example is that she requested her second pregnancy to be induced to avoid the risk of going into labour while uninsured at a later date. She describes the decision-making behind the family's relocation from Johnstown, Pennsylvania, to Terre Haute, Indiana, in 1981.
 
 ## Transcript
 
