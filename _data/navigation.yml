@@ -1,11 +1,16 @@
 # Site navigation links
 
-- title: Our Community
+- title: Home
   url: /
   excerpt:
   image:
 
 - title: Our Collection
   url: /collection
+  excerpt:
+  image:
+
+- title: About Johnstown
+  url: /about
   excerpt:
   image:
