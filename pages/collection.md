@@ -1,6 +1,6 @@
 ---
 title: Our Collection
-layout: page
+layout: collection
 permalink: /collection
 ---
 
