@@ -3,7 +3,7 @@ layout: item
 format: media
 title: "Ruth Demko Recalls Her Husband's Layoffs"
 author: "Alexis Shoulta"
-contributor: "Ruth Demko"
+interviewee: "Ruth Demko"
 group: "Spouses"
 creator: "Alexis Shoulta"
 externalurl: https://youtu.be/jy28_yPaZuM
