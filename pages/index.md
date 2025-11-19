@@ -5,7 +5,7 @@ permalink: /
 ---
 # Welcome to Johnstown Oral Histories
 
-This site is an ongoing research project by Alexis Shoulta. It collects oral histories and memories of families who experienced effects of deindustrialization in Johnstown Pennsylvania.
+This site is an ongoing research project by Alexis Shoulta. It collects oral histories and memories of families who experienced effects of deindustrialization in Johnstown, Pennsylvania.
 
 
 
