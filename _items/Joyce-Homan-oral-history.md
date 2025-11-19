@@ -1,6 +1,6 @@
 ---
 layout: item
-format: media
+format: video
 title: "Joyce Homan Placeholder"
 author: "Alexis Shoulta"
 interviewee: "Joyce Homan"
