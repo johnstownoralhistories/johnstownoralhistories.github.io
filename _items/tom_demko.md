@@ -3,7 +3,7 @@ layout: item
 format: media
 title: "Tom Demko placeholder"
 author: "Alexis Shoulta"
-interviewee: "Ruth Demko"
+interviewee: "Tom Demko"
 group: "Worker"
 creator: "Alexis Shoulta"
 externalurl: 
