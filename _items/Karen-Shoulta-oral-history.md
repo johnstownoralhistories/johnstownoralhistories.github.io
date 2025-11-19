@@ -10,8 +10,8 @@ externalurl:
 embedurl: 
 creationdate: 2025-10-28
 type: "video"
-shortdesc: "Tom Demko Oral History"
-categories: [ Video, Oral History, 1970s, 1980s, Demko Family, Child, Relocation, Demko Family ]
+shortdesc: "Karen Shoulta Oral History"
+categories: [ Video, Oral History, 1970s, 1980s, Demko Family, Child, Relocation ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
