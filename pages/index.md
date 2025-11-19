@@ -3,6 +3,12 @@ title: IDAH Community Archiving Template
 layout: homepage
 permalink: /
 ---
+# Welcome to Johnstown Oral Histories
+
+This site is an ongoing research project by ALexis Shoulta. It collects oral histories and memories of families who experienced effects of deindustrialization in Johnstown Pennsylvania.
+
+
+
 
 <!--The Archiving Out of the Box team supports community storytelling with a  digital archiving and storytelling kit. This demo site has examples of 3 different kinds of community contributions: scanned/screencaptured documents, photos of objects, and vidoes.
 
