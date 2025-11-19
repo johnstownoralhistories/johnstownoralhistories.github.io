@@ -1,6 +1,6 @@
 ---
 layout: item
-format: media
+format: video
 title: "Tom Demko placeholder"
 author: "Alexis Shoulta"
 interviewee: "Tom Demko"
@@ -11,7 +11,7 @@ embedurl:
 creationdate: 2025-10-28
 type: "video"
 shortdesc: "Tom Demko Oral History"
-categories: [ Video, Oral History, 1970s, 1980s, Demko Family, Spouse, Relocation ]
+categories: [ Oral History, 1970s, 1980s, Demko Family, Spouse, Relocation ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
