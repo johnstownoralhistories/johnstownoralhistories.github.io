@@ -49,12 +49,12 @@ title: "Johnstown Oral Histories"
 subtitle: "Workers and Families in Deindustrialization"
 
 # A longer description of your site (max 150 words). Helps search engines find you.
-description: "This site contains the oral histories of people who live through deindustrialization in Johnstown, PA"
+description: "This site contains the oral histories of people who lived through deindustrialization in Johnstown, PA"
 
 # These credits show up in the includes/_footer.html
 # Main author of the website.
-author: "LexieShoulta"
-authorname : "Lexie Shoulta"
+author: "AlexisShoulta"
+authorname : "Alexis Shoulta"
 sitelogo: site_logo.jpg
 placeholderimg: placeholder.png
 
@@ -62,7 +62,7 @@ placeholderimg: placeholder.png
 sitedate : 2025
 
 # Other community social media. Leave blank if you don't have these.
-email : ""
+email : "johnstown.oral.histories@gmail.com"
 website : 
 twitter : 
 github : 
