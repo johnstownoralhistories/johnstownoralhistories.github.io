@@ -1,6 +1,6 @@
 ---
 layout: item
-format: media
+format: video
 title: "Karen Shoulta Placeholder"
 author: "Alexis Shoulta"
 interviewee: "Karen Shoulta née Demko"
