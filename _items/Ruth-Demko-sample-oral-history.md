@@ -1,6 +1,6 @@
 ---
 layout: item
-format: media
+format: video
 title: "Ruth Demko Recalls Her Husband's Layoffs"
 author: "Alexis Shoulta"
 interviewee: "Ruth Demko"
@@ -11,7 +11,7 @@ embedurl: https://youtu.be/jy28_yPaZuM
 creationdate: 2025-04-28
 type: "video"
 shortdesc: "Ruth Demko Oral History"
-categories: [ Video, Oral History, 1970s, 1980s, Demko Family, Spouse, Relocation ]
+categories: [ Oral History, 1970s, 1980s, Demko Family, Spouse, Relocation ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
