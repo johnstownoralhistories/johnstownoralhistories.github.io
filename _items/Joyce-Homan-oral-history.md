@@ -11,7 +11,7 @@ embedurl:
 creationdate: 2025-10-28
 type: "video"
 shortdesc: "Joyce Homan Oral History"
-categories: [ Video, Oral History, 1970s, 1980s, Child, Coal ]
+categories: [ Oral History, 1970s, 1980s, Child, Coal ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
