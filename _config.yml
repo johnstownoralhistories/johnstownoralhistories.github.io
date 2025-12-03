@@ -118,8 +118,7 @@ collections:
   items:
     output: true
     permalink: /:collection/:path:output_ext
-    contributor: true
-    creationdate: true
+    creator: true
     format: true
     group: true
   authors:
