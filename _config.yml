@@ -119,7 +119,8 @@ collections:
     output: true
     permalink: /:collection/:path:output_ext
     contributor: true
-    creator: true
+    creationdate: true
+    format: true
     group: true
   authors:
     output: false
