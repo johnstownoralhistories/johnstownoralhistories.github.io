@@ -6,8 +6,8 @@ author: "Alexis Shoulta"
 interviewee: "Karen Shoulta née Demko"
 group: "Child"
 creator: "Alexis Shoulta"
-externalurl: https://youtu.be/_rdSdDB9djo
-embedurl: 
+externalurl: 
+embedurl: https://youtu.be/_rdSdDB9djo
 creationdate: 2025-12-03
 type: "video"
 shortdesc: "Karen Shoulta Oral History"
