@@ -6,7 +6,7 @@ author: "Alexis Shoulta"
 interviewee: "Karen Shoulta née Demko"
 group: "Child"
 creator: "Alexis Shoulta"
-externalurl: 
+externalurl: https://youtu.be/_rdSdDB9djo
 embedurl: 
 creationdate: 2025-12-03
 type: "video"
