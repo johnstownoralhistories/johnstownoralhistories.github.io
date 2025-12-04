@@ -1,14 +1,14 @@
 ---
 layout: item
 format: video
-title: "Karen Shoulta Placeholder"
+title: "Karen Shoulta Oral History"
 author: "Alexis Shoulta"
 interviewee: "Karen Shoulta née Demko"
 group: "Child"
 creator: "Alexis Shoulta"
 externalurl: 
 embedurl: 
-creationdate: 2025-10-28
+creationdate: 2025-12-03
 type: "video"
 shortdesc: "Karen Shoulta Oral History"
 categories: [ Oral History, 1970s, 1980s, Demko Family, Child, Relocation ]
