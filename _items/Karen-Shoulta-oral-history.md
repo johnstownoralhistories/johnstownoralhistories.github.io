@@ -18,7 +18,9 @@ teammember: "Alexis Shoulta"
 
 ## Interview Summary
 
-Lorem ipsum dolor sit amet consectetur adipiscing elit. Quisque faucibus ex sapien vitae pellentesque sem placerat. In id cursus mi pretium tellus duis convallis. Tempus leo eu aenean sed diam urna tempor. Pulvinar vivamus fringilla lacus nec metus bibendum egestas. Iaculis massa nisl malesuada lacinia integer nunc posuere. Ut hendrerit semper vel class aptent taciti sociosqu. Ad litora torquent per conubia nostra inceptos himenaeos.
+  Karen Shoulta was born in Johnstown, Pennsylvania on April 20, 1969. Her father, Thomas Demko was a draftsman who worked for U.S. Steel. Her mother, Ruth Demko, stayed at home.
+
+Karen had two younger siblings, Christopher and Dana. Her sister had Spinal Muscular Atrophy, Ruth was her primary caregiver....
 
 ## Transcript
 
