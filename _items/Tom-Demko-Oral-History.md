@@ -7,7 +7,7 @@ interviewee: "Tom Demko"
 group: "Worker"
 creator: "Alexis Shoulta"
 externalurl: 
-embedurl: 
+embedurl: https://youtu.be/Rpg9zGCpiCM
 creationdate: 2025-10-28
 type: "video"
 shortdesc: "Tom Demko Oral History"
