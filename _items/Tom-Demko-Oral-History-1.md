@@ -1,7 +1,7 @@
 ---
 layout: item
 format: video
-title: "Tom Demko placeholder"
+title: "Tom Demko Oral History 1"
 author: "Alexis Shoulta"
 interviewee: "Tom Demko"
 group: "Worker"
