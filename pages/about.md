@@ -1,5 +1,5 @@
 ---
-title: About the Project
+title: Essays
 layout: page
 permalink: /about
 ---
