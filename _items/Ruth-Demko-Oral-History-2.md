@@ -17,16 +17,21 @@ teammember: "Alexis Shoulta"
 ---
 
 ## Interview Summary
-
-Ruth grew up in downtown Johnstown. She doesn't recall the city ever being as busy or discordent as up on the mountains surrounding the city where she one day moved. People on the mountain had share telephone lines, and people would listen in on one anothers convesations. Ruth didn't like this, and insisted on having a private line. It took six months for it to be installed.
-
-She worked for an attorney before she was married. She and Tom did not want her to work after she was married and she planned only to work for six months after. However, this didn't happen because she was let go. She does not know for certain, but she guesses that she was let go because her boss did not want a married woman working in his office. She says that this was a common understanding, and she says it might be because of old school ideas that women belong at home.
-
 Ruth Demko was interviewed by her granddaughter Alexis Shoulta at here gome in Greenwood, Indiana, on December 2, 2025. This interview is a follow up interview to Ruth Demko Oral History 1, collected on October 5, 2025.
 
 Throughout the interview, Ruth's husband Tom is referred to as "Pap." This is the familial term that his grandchildren call him.
 
-As a hommemaker Ruth's jobs at home were to take care of the children, cook, clean and take care of her mother. When her children were in school, she would wake up, get them ready and make them breakfast. When they got older, she didn't have to do as much, and would listen to see if they were on task and then would be with them at the door when they left. Once the kids were at school, her day was comprised of taking care of her daughter, Dana. 
+Ruth grew up in downtown Johnstown. When she went to high school there were two tracks, academic or commercial. Academic would have been a college track, and commercial was preparing students for the workforce. Ruth learned to write in shorthand on the commercial track. She was expected to work until she was married. 
+
+She worked for an attorney before she was married. She and Tom did not want her to work after she was married and she planned only to work for six months after. However, this didn't happen because she was let go. She does not know for certain, but she guesses that she was let go because her boss did not want a married woman working in his office. She says that this was a common understanding, and she says it might be because of old school ideas that women belong at home.
+
+Before they were married, Tom told Ruth that he believed if someone didn't have the money to pay cash for something they couldn't afford it. Ruth didn't have a problem with this because she was the type of person too. Even before she was married she would save her money.
+
+She doesn't recall the city ever being as busy or discordent as up on the mountains surrounding the city where she moved after marrying Tom. People on the mountain had share telephone lines, and people would listen in on one anothers convesations. Ruth didn't like this, and insisted on having a private line. It took six months for it to be installed. On the mountain they lived around her husband Tom's family. There were about only three to five families living up on that mountain.
+
+When they first got married, Tom would keep his patcheck. And one time, he brought home his next check and the first one was still untouched. For a while, Tom managed the finances alone, and it didn't work well. Then Ruth managed them alone and it also didn't work well. They tried doing them together and didn't like that either, so managing the money came back to solely being Ruth's job.
+
+Ruth prefers the term homemaker over hosuewife. As a hommemaker Ruth's jobs at home were to take care of the children, cook, clean and take care of her mother. When her children were in school, she would wake up, get them ready and make them breakfast. When they got older, she didn't have to do as much, and would listen to see if they were on task and then would be with them at the door when they left. Once the kids were at school, her day was comprised of taking care of her daughter, Dana. 
 
 Dana's daily care was dependent upon her physical state of the day. Some days Ruth would have to perform "percussion"  on her or would give her medication. Percussion was where Ruth would tap on Dana's chest when she had pneumonia to break up buildup in her lungs. Dana could not cough on her own, and she had pneumonia over twenty one times. Ruth would also physically set her up to play, and changed her dipers. 
 
@@ -34,9 +39,11 @@ Dana was educated at home. There was a program called Appalachia Intermediate Un
 
 When the family would go out, they took her everywhere. They also traveled with her. Tom built Dana a wheelchair from a stroller, and it was able to fold down so they could travel with it as well. The Muscular Dystrophy Association was willing to buy her a wheelchair, but at the time they could not find one that met Dana's needs. There were not ramps, so Tom would pick up her chair to move her up and down steps. At home, Dana slept upstairs and she needed to be carried up and down the stairs as well.
 
-They avoided people that they knew to be sick. The only class she took with other children was her religious education courses. Ruth recalls that Dana was thrilled to be able to be around the other students. They also took Dana to be treated at the NIH at the National Institutes of Neurological Disease and Stroke. Pittsburgh Children's Hospital sent a neurologist to their local hospital every six months for muscular dystrophy.
+They avoided people that they knew to be sick. The only class Dana took with other children was her religious education courses. Ruth recalls that Dana was thrilled to be able to be around the other students. They also took Dana to be treated at the NIH at the National Institutes of Neurological Disease and Stroke. Pittsburgh Children's Hospital sent a neurologist to their local hospital every six months for muscular dystrophy.
 
 When Ruth cooked or baked, it was from scratch. When Tom came home from work, the family would have their evening meal. As the years went on, Ruth really wanted to get the kids bathed and to bed in the evening. Tom was responsible for getting the kids bathed and ready for bed, and it was then that she was able to sit and relax and drink coffee. Then the family would all say nightly prayers together.
+
+Occasionally, an older bachelor that lived close to them, Jim, would watch the children on his property for Ruth. However, if Dana went up there, Ruth would go with her. Jim had a huge meadow and a creek on his property, so the children really liked playing there. She thinks that Jim found it homey to be close with her family, and he was lifelong friends with Tom's father. 
 
 When Tom was unemployed he would get up in the mornings and take care of Dana so that she could sleep in. He would get Dana set up to watch her TV show. They would also like to play Uno together. He also worked on building their house during the layoff. She was not able to return to work or bring in alternate forms of income when Tom was laid off because Dana needed her care. If she went back to work, Tom would have to take over as Dana's primary caretaker, and the house wouldn't have been able to be built. However, Ruth didn't really want to return to work, she was content with homemaking.
 
@@ -60,9 +67,9 @@ The family moved to Greenwood in 1987 after their oldest daughter Karen graduate
 
 Ruth identifies her husband's career as stabilizing only when he retired. Ruth did not think that her and Tom would be able to have a good retirement. She told her oldest granddaughter that she used to think the would be eating dog food. There were many years where they were unable to save money. After they finished paying off their children's college expenses they saved as much as they could while Tom was still working.
 
-Before they were married, Tom told Ruth that he believed if someone didn't have the money to pay cash for something they couldn't afford it. Ruth didn't have a problem with this because she was the type of person too. Even before she was married she would save her money.
+Ruth recalls that their life was primarily made up of the duties that they had to do, and that they didn't have much of a social life. When asked, she says that she thinks these expectations came from the example she saw as a child. 
 
-When they first got married, Tom would keep his patcheck. And one time, he brought home his next check and the first one was still untouched. For a while, Tom managed the finances alone, and it didn't work well. Then Ruth managed them alone and it also didn't work well. They tried doing them together and didn't like that either, so managing the money came back to solely being Ruth's job.
+After Tom retired she recalls that she was used to being home alone by herself, and she told Tom she didn't realize he talked alot until he retired. She wasn't home alone with him very much before then. Tom says it was hard for him to adjust to staying in the house.
 
 Ruth currently lives with her husband Tom in Greenwood, Indiana.
 
