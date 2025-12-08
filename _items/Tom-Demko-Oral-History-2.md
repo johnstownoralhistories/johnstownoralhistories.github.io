@@ -1,6 +1,6 @@
 ---
 layout: item
-format: video
+format: Oral History
 title: "Tom Demko Oral History 2"
 author: "Alexis Shoulta"
 interviewee: "Tom Demko"
@@ -11,7 +11,7 @@ embedurl: https://youtu.be/Z-DRorf8H1E
 creationdate: 2025-12-2
 type: "video"
 shortdesc: "A second oral history interview with Tom Demko."
-categories: [ Oral History, 1970s, 1980s, Demko Family, Worker, Relocation ]
+categories: [ 1970s, 1980s, Demko Family, Worker, Relocation ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
