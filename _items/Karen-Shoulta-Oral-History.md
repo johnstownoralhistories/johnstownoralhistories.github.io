@@ -19,6 +19,8 @@ teammember: "Alexis Shoulta"
 ## Interview Summary
 Alexis Shoulta conducted this interview on December 3, 2025.
 
+In the interview, Tom Demko is occasionally referred to as "Pap". This is the nickname for Grandfather in the Demko/Shoulta family. 
+
 Karen Shoulta was born in Johnstown, Pennsylvania on April 20, 1969. She lived there until there until she sixteen years old. She grew up in the moutains, with two younger siblings, Christopher and Dana. She recalls that they were often left to their own devices. They didn't have many neighbors, or children living nearby. She recalls that her family was not rich, but average. 
 
 Her father, Thomas Demko, was a draftsman who worked for U.S. Steel in the steel mill. At home, her father took care of the outdoor chores, working on the cars and fixing up the house. While he was working, he would be gone all day.
