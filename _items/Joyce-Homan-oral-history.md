@@ -1,6 +1,6 @@
 ---
 layout: item
-format: video
+format: Oral History
 title: "Joyce Homan Placeholder"
 author: "Alexis Shoulta"
 interviewee: "Joyce Homan"
@@ -11,7 +11,7 @@ embedurl:
 creationdate: 2025-10-28
 type: "video"
 shortdesc: "Joyce Homan Oral History"
-categories: [ Oral History, 1970s, 1980s, Child, Coal ]
+categories: [ 1970s, 1980s, Child, Coal ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
