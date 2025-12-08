@@ -1,6 +1,6 @@
 ---
 layout: item
-format: video
+format: Oral History
 title: "Karen Shoulta Oral History"
 author: "Alexis Shoulta"
 interviewee: "Karen Shoulta née Demko"
@@ -11,7 +11,7 @@ embedurl: https://youtu.be/_rdSdDB9djo
 creationdate: 2025-12-03
 type: "video"
 shortdesc: "Karen Shoulta Oral History"
-categories: [ Oral History, 1970s, 1980s, Demko Family, Child, Relocation ]
+categories: [ 1970s, 1980s, Demko Family, Child, Relocation ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
