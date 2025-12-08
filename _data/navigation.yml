@@ -10,7 +10,12 @@
   excerpt:
   image:
 
-- title: Essays & Project Information
+- title: Essays
   url: /about
+  excerpt:
+  image:
+
+- title: About the Project
+  url: /Essay
   excerpt:
   image:
