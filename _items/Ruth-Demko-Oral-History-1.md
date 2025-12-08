@@ -1,6 +1,6 @@
 ---
 layout: item
-format: video
+format: Oral History
 title: "Ruth Demko Oral History 1"
 author: "Alexis Shoulta"
 interviewee: "Ruth Demko"
@@ -11,7 +11,7 @@ embedurl: https://youtu.be/l-aUm7nnDcM
 creationdate: 2025-10-5
 type: "video"
 shortdesc: "Ruth Demko Oral History"
-categories: [ Oral History, 1970s, 1980s, Demko Family, Spouse, Relocation ]
+categories: [ 1970s, 1980s, Demko Family, Spouse, Relocation ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
