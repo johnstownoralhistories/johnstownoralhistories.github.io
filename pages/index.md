@@ -9,7 +9,7 @@ This site is an ongoing digital humanities research project by Alexis Shoulta. I
 
 ### Image Citation
 
-Historic American Engineering Record, Creator. Johnson Steel Street Rail Company, Upper Shops, 525 Central Avenue, Johnstown, Cambria County, PA. Pennsylvania Cambria County Johnstown, 1968. translateds by Madridmitter Documentation Compiled After. Photograph. [https://www.loc.gov/item/pa2786/.](https://www.loc.gov/item/pa2786/]
+Historic American Engineering Record, Creator. Johnson Steel Street Rail Company, Upper Shops, 525 Central Avenue, Johnstown, Cambria County, PA. Pennsylvania Cambria County Johnstown, 1968. translateds by Madridmitter Documentation Compiled After. Photograph. [https://www.loc.gov/item/pa2786/.](https://www.loc.gov/item/pa2786/)
 
 
 
