@@ -11,8 +11,8 @@ embedurl: https://youtu.be/JbMCdXOLpvE
 creationdate: 2025-12-2
 type: "video"
 shortdesc: "An oral history of Ruth Demko conducted on December 2, 2025."
-categories: [ 1970s, 1980s, Demko Family, Spouse, Relocation ]
-tags: [  ]
+categories: [ 1970s, 1980s, Ruth Demko, Spouse, Relocation ]
+tags: [ Demko Family ]
 teammember: "Alexis Shoulta"
 ---
 
