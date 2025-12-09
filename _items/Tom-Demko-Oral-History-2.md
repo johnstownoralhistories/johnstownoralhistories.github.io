@@ -11,8 +11,8 @@ embedurl: https://youtu.be/Z-DRorf8H1E
 creationdate: 2025-12-2
 type: "video"
 shortdesc: "A second oral history interview with Tom Demko."
-categories: [ 1970s, 1980s, Demko Family, Worker, Relocation ]
-tags: [  ]
+categories: [ 1970s, 1980s, Tom Demko, Worker, Relocation ]
+tags: [ Demko Family ]
 teammember: "Alexis Shoulta"
 ---
 
