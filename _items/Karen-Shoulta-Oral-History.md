@@ -11,7 +11,7 @@ embedurl: https://youtu.be/_rdSdDB9djo
 creationdate: 2025-12-03
 type: "video"
 shortdesc: "Karen Shoulta Oral History"
-categories: [ 1970s, 1980s, Child, Relocation ]
+categories: [ 1970s, 1980s, Child, Relocation, Karen Shoulta ]
 tags: [ Demko Family ]
 teammember: "Alexis Shoulta"
 ---
