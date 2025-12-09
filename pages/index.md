@@ -5,7 +5,11 @@ permalink: /
 ---
 # Welcome to Johnstown Oral Histories
 
-This site is an ongoing research project by Alexis Shoulta. It collects oral histories and memories of families who experienced effects of deindustrialization in Johnstown, Pennsylvania.
+This site is an ongoing digital humanities research project by Alexis Shoulta. It collects oral histories and memories of families who experienced effects of deindustrialization in Johnstown, Pennsylvania. 
+
+### Image Citation
+
+Historic American Engineering Record, Creator. Johnson Steel Street Rail Company, Upper Shops, 525 Central Avenue, Johnstown, Cambria County, PA. Pennsylvania Cambria County Johnstown, 1968. translateds by Madridmitter Documentation Compiled After. Photograph. https://www.loc.gov/item/pa2786/.
 
 
 
