@@ -15,6 +15,7 @@ categories: [ 1970s, 1980s, Child, Coal ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
+### note to self > link that downtown image of glossers
 
 ## Interview Summary
 
