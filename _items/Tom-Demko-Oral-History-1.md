@@ -11,7 +11,7 @@ embedurl: https://youtu.be/Rpg9zGCpiCM
 creationdate: 2025-10-5
 type: "video"
 shortdesc: An oral history of Thomas Demko recorded on October 5, 2025."
-categories: [ Tom Demko, Worker, Relocation ]
+categories: [ Tom Demko, Worker, Relocation, Steel ]
 tags: [ Demko Family ]
 teammember: "Alexis Shoulta"
 ---
