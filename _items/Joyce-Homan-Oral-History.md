@@ -11,7 +11,7 @@ embedurl: https://youtu.be/PpLaIqlTaYI
 creationdate: 2025-12-9
 type: "Oral History"
 shortdesc: "Joyce Homan Oral History"
-categories: [ 1970s, 1980s, Child, Steel ]
+categories: [ 1970s, 1980s, Child, Steel, Joyce Homan ]
 tags: [  ]
 teammember: "Alexis Shoulta"
 ---
