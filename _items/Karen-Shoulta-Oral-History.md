@@ -11,7 +11,7 @@ embedurl: https://youtu.be/_rdSdDB9djo
 creationdate: 2025-12-03
 type: "video"
 shortdesc: "Karen Shoulta Oral History"
-categories: [ 1970s, 1980s, Child, Relocation, Karen Shoulta ]
+categories: [ 1970s, 1980s, Child, Relocation, Karen Shoulta, Steel ]
 tags: [ Demko Family ]
 teammember: "Alexis Shoulta"
 ---
@@ -417,4 +417,4 @@ Alexis: Okay. Thank you for talking to me today. You're welcome.
 Karen: Have a good day. You too.
 
 ## External Resource Citations
-[^1]: Historic American Engineering Record, Creator, and Bethlehem Steel Company. Bethlehem Steel Company, Entrance Gate & Footbridge, Lower Works, Johnstown, Cambria County, PA. Pennsylvania Cambria County Johnstown, 1968. translateds by Madridmitter Documentation Compiled After. Photograph. (https://www.loc.gov/item/pa3035/) [https://www.loc.gov/item/pa3035/]
+[^1]: Historic American Engineering Record, Creator, and Bethlehem Steel Company. Bethlehem Steel Company, Entrance Gate & Footbridge, Lower Works, Johnstown, Cambria County, PA. Pennsylvania Cambria County Johnstown, 1968. translateds by Madridmitter Documentation Compiled After. Photograph. [https://www.loc.gov/item/pa3035/.] (https://www.loc.gov/item/pa3035/)
