@@ -1,7 +1,7 @@
 ---
 layout: item
 format: Oral History
-title: "Joyce Homan Placeholder"
+title: "Joyce Homan Oral History"
 author: "Alexis Shoulta"
 interviewee: "Joyce Homan"
 group: "Child"
