@@ -99,64 +99,64 @@ Karen: My father worked for U.S. Steel as a draftsman in the Johnstown plant.
 
 Alexis: Can you tell me something about your family history? 
 
-Karen: So my family history is both of my parents were from Pennsylvania. They met in Pennsylvania and they got married when they were 26 and 28. 
+Karen: So, my family history is both of my parents were from Pennsylvania. They met in Pennsylvania and they got married when they were 26 and 28. 
 
-About a year later, a little over a year later after they got married, they had me. Followed two years and two days by my brother. And then we had a sister born three years after that. Also within five.
+About a year later, a little over a year later after they got married, they had me. Followed two years and two days by my brother. And then we had a sister born three years after that. Also, within five.
 
 My mother did not work. My sister had a disease called SMA, which is spinal muscular atrophy. 
 
-Most people would understand it if they understand Lou Gehrig's disease. So my mother did not work. She took care of my sister, and my father worked in the steel mills.
+Most people would understand it if they understand Lou Gehrig's disease. So, my mother did not work. She took care of my sister, and my father worked in the steel mills.
 
 (2:22 - 5:31)
 Karen: At times there were periods of layoffs in the steel mills. Sometimes it was related economically. Sometimes it was if there was a strike by the actual operators that worked in the steel mill, then my father, who worked at an office job, would not cross the picket line because that was usually had unfavorable consequences. 
 
 Alexis: Can you tell me what your family was like when your father was employed and working in the steel industry before any major industry layoffs? 
 
-Karen: So to the best of my knowledge, because I was younger, we lived in the top of the Laurel Mountains. We had a home that we lived in, probably a little bit different than some kids' life. We did not have a lot of neighbors because we lived in the country out in the mountain. 
+Karen: So, to the best of my knowledge, because I was younger, we lived in the top of the Laurel Mountains. We had a home that we lived in, probably a little bit different than some kids' life. We did not have a lot of neighbors because we lived in the country out in the mountain. 
 
 My dad went to work every day and came home. That's sort of my generic memory of it. We were not rich by any means whatsoever. 
 
-We were just probably kind of like an average family and we had extended family that lived around us. 
+We were just probably kind of like an average family, and we had extended family that lived around us. 
 
 Alexis: I guess during this time, what were the assigned work roles between your mother and your father in the family? 
 
-Karen: So as I said, my sister had a deadly disease, so my mom took care of her and my brother and I. She did, of course, the housework, etc. There was a period of time when I was younger that my mom's mom also lived with us and she had Parkinson's disease, so my mom was taking care of her mother and my sister at the same time. 
+Karen: So, as I said, my sister had a deadly disease, so my mom took care of her and my brother and I. She did, of course, the housework, etc. There was a period of time when I was younger that my mom's mom also lived with us and she had Parkinson's disease, so my mom was taking care of her mother and my sister at the same time. 
 
 My dad would go to work. On the weekends, then he had, I'll call it more the outdoor chores, fixing things on the car, fixing things on the house. They had a nice friend group where if somebody was talented at one thing, then they would all go and work on that person's house for whatever that item was. 
 Then if something else needed work done on somebody else's house and they had a talent, that helped them to be able to save money not to hire people out and they helped each other with things they needed done. 
 
 Alexis: Then as parents, what were their roles to each of you as parental figures?
 
-Karen: I would say probably what was a typical 70s family. My mom was home with us all day when we didn't go to school. Then when we were old enough to go to school, obviously we went to school all day. So I don't really know, she was there with my sister. My sister did have a teacher from the school system that would come in several days a week and teach my sister. 
+Karen: I would say probably what was a typical seventies family. My mom was home with us all day when we didn't go to school. Then when we were old enough to go to school, obviously we went to school all day. So, I don't really know, she was there with my sister. My sister did have a teacher from the school system that would come in several days a week and teach my sister. 
 
 My dad, of course, was gone all day to work, but then he would come home. My mom would make dinner. I'm sure there was homework. I don't really remember a lot of that, but I'm sure there was some homework that needed to be done, etc. Bath time and going to bed during the work week. During the weekends, we just played outside a lot.
 
 (5:31 - 6:05)
 Karen: I guess to our own devices, to a degree, there being living in the forest, there was lots of places to explore and be at. There weren't kids that really lived around us. We didn't have like what some kids grew up where they play with friends. 
 
-We didn't really have that and we lived far away from where we went to school. My parents didn't drive us to somebody's house to play. If something like that was done, it was usually like a special occasion like it was somebody's birthday, but those weren't everyday occurrences.
+We didn't really have that, and we lived far away from where we went to school. My parents didn't drive us to somebody's house to play. If something like that was done, it was usually like a special occasion like it was somebody's birthday, but those weren't everyday occurrences.
 
 (6:06 - 6:50)
 Alexis: Were you close with your parents? 
 
-Karen: I don't know. I mean, I guess so. I mean, I don't remember doing family game time or anything like that. 
+Karen: I don't know. I mean; I guess so. I mean, I don't remember doing family game time or anything like that. 
 
 That wasn't really the way things were back then. We had TV, but being where we lived, most of the time you could see TV would be what I call the winter months when the leaves were off the trees. Therefore, sometimes you could get a station from Pittsburgh or from the closest town we lived to, Johnstown, but the TV wasn't even what I'd say was a reliable thing to do because you didn't get TV all year.
 
 (6:50 - 13:53)
-ALexis: And then earlier you mentioned Pap [Tom] lost his job sometimes due to layoffs, financial layoffs or other strikes. Do you remember any of them in particular? 
+Alexis: And then earlier you mentioned Pap [Tom] lost his job sometimes due to layoffs, financial layoffs, or other strikes. Do you remember any of them in particular? 
 
 Karen: I guess I just sort of remember more where he would have been around the house. Of course, during the day he would take on more house projects, things on his to-do list to do. 
 
-Now, of course, you can't do some jobs if you have to put a lot of money in residing the house or something like that, but he always seemed to have jobs to do, or my grandfather didn't live very far away. Sometimes he would help him do things and vice versa, back and forth. So that's sort of, I guess, my recollection of life being different. 
+Now, of course, you can't do some jobs if you have to put a lot of money in residing the house or something like that, but he always seemed to have jobs to do, or my grandfather didn't live very far away. Sometimes he would help him do things and vice versa, back, and forth. So that's sort of, I guess, my recollection of life being different. 
 
 The only thing I remember at one point in time, and I don't know if it happened more than once, was we must have made so little money that we did get. It was either free or reduced lunches. It used to be in school, like when they took the head count in the morning, you paid for lunch, or they gave you like a little, it was probably like two inches by two inches, the mimeograph, the white with the purple that used to like smell really cool after it came off the mimeograph machine. 
 
-You were handed one of those. So I know at one point we got free or reduced lunches, but that's that. I mean, we were never wealthy. We didn't have a lot, so it's not like there was a huge decrease in what we had. 
+You were handed one of those. So, I know at one point we got free or reduced lunches, but that's that. I mean, we were never wealthy. We didn't have a lot, so it's not like there was a huge decrease in what we had. 
 
-The one thing I do remember, we had these little sneakers and they would kind of be like the canvas keds now, but they weren't keds, and we called them bobos. And I do remember when, at some point when my bobos, the insoles wore out, my dad traced my foot like on a piece of cardboard or a thicker, you know, bendable, not paper, but something thicker than paper, and he traced my foot and he cut it out and he slid it in my bobos because there wasn't money to buy new shoes. So that was how I kept using my bobos. 
+The one thing I do remember, we had these little sneakers, and they would kind of be like the canvas Keds now, but they weren't Keds, and we called them Bobos. And I do remember when, at some point when my bobos, the insoles wore out, my dad traced my foot like on a piece of cardboard or a thicker, you know, bendable, not paper, but something thicker than paper, and he traced my foot and he cut it out and he slid it in my bobos because there wasn't money to buy new shoes. So that was how I kept using my bobos. 
 
-Alexis: And so getting free and reduced lunch at school was public, like people, other people would know? 
+Alexis: And so, getting free and reduced lunch at school was public, like people, other people would know? 
 
 Karen: Yes, it was done at the front of class, yeah. Just like they handed out at that point in time, whether you got fluoride pills or not, that was the same way. It was all done at the front of class, like at the beginning of the day. 
 
@@ -170,11 +170,11 @@ It was the polyester of the time, and she had made my shirt, and it had a solid 
 
 Alexis: Um, do you remember how your family, outside of what you shared, do you remember how your family responded to the layoffs? Like, was it like, did you know when your dad, like it would, it would happen, or do you, did things like change in how you spent money, or how you guys? 
 
-Karen: Um, I would say like, when we were younger, our parents, probably like most parents, tried to insulate us from any, you know, understanding any of that. But you know, through the years, as I got older, and I was actually in, you know, probably junior high, and then in high school, my father got laid off again, and at that point, the steel mill started closing, and he took a position outside of Pittsburgh, and he would travel back and forth every day, and it was probably a good, probably an hour and a half drive each way. So obviously, he was gone more, um, so as I got older, obviously, then yes, there, there were less and less things, or there was cutbacks, and then he was laid off from that job when that company closed, and then he moved to Terre Haute, Indiana, and took a job, and that was when I was a freshman or sophomore in high school. So then he was traveling every week, 10 hours each way from Johnstown to Terre Haute. And yes, of course, now then, my parents, it wasn't, you know, now it wasn't just him traveling, but they had to rent him a place to stay in during the week, so that was an extra expense for them. So yes, I was aware that, you know, we were already not well off and, you know, had less things. 
+Karen: Um, I would say like, when we were younger, our parents, probably like most parents, tried to insulate us from any, you know, understanding any of that. But you know, through the years, as I got older, and I was actually in, you know, probably junior high, and then in high school, my father got laid off again, and at that point, the steel mill started closing, and he took a position outside of Pittsburgh, and he would travel back and forth every day, and it was probably a good, probably an hour and a half drive each way. So obviously, he was gone more, um, so as I got older, obviously, then yes, there, there were less and less things, or there was cutbacks, and then he was laid off from that job when that company closed, and then he moved to Terre Haute, Indiana, and took a job, and that was when I was a freshman or sophomore in high school. So, then he was traveling every week, 10 hours each way from Johnstown to Terre Haute. And yes, of course, now then, my parents, it wasn't, you know, now it wasn't just him traveling, but they had to rent him a place to stay in during the week, so that was an extra expense for them. So yes, I was aware that, you know, we were already not well off and, you know, had less things. 
 
 Alexis: Did you notice at school other students having experiences with their family being laid off? Did you notice, like, a change in the community? 
 
-Karen: Um, I, I don't know that I can say that, because I was never part of the 'it' crowd, because I, I didn't have things.  My parents were too poor, um, you know, never had stylish clothes or whatever, so probably I would have to guess that the people that I hung around with were of similar economic circumstances. So we didn't really have a lot to begin with. Um, so I, I guess I would probably say no, probably because of the people that I hung out with that were my friends. 
+Karen: Um, I, I don't know that I can say that, because I was never part of the 'it' crowd, because I, I didn't have things.  My parents were too poor, um, you know, never had stylish clothes or whatever, so probably I would have to guess that the people that I hung around with were of similar economic circumstances. So, we didn't really have a lot to begin with. Um, so I, I guess I would probably say no, probably because of the people that I hung out with that were my friends. 
 
 Alexis: And I guess you guys probably didn't go down to town very often, but did you notice changes in Johnstown as a town during this time period? 
 
@@ -191,7 +191,7 @@ I can't remember where my classmates that left. I can't remember where they went
 
 Alexis: And then during this period when steel was declining and work was uncertain, did you notice any change in your family roles, or did they stay consistent? 
 
-Karen: I would say they were fairly consistent. My sister died in 1981, may of 81, so the roles definitely stayed until that, that point in time the same, because my mother was the primary caregiver. Um, I do remember my dad in the evenings, though, helping with my sister, giving her a bath and whatnot.
+Karen: I would say they were fairly consistent. My sister died in 1981, may of eighty-one, so the roles definitely stayed until that, that point in time the same, because my mother was the primary caregiver. Um, I do remember my dad in the evenings, though, helping with my sister, giving her a bath and whatnot.
 
 Um, so after that, so by the time, you know, my sister would have died in 81, I would have been 12, um, and obviously my brother and I were in school, so there wasn't so much, like, you know, there wasn't a child at home that needed help, and at that point, uh, my grandmother was already, she had moved to a nursing home, and then she died, so my mom didn't have her to care for. So, um, I don't know that the roles changed, but I believe my mother's role changed. She didn't have as many people that she was caring for, and my brother and I were growing older and didn't need, um, you know, as much as attention as a small child that needs diapers changed and things like that.
 
@@ -234,7 +234,7 @@ Like, my life was pretty much the, just very boring and very much the, very much
 
 Um, so we, you know, we would do that in the summer. We would, um, bale hay. We would pick corn. We would pick potatoes. Um, probably me more than my brother. I would go down to the barn. I would brush the cows out. I would feed the cows. We didn't really mess with the chickens much. Um, but, you know, my, my life for those 16 years was pretty much always this, the same. 
 
-There wasn't, you know, we didn't live in a neighborhood. My parents didn't drive us places. Um, the city of Johnstown to, like, go to the mall up in Richland and things like that, you know, that was probably 30, 35 minute drive and, you know, my parents didn't really have money, so they didn't just go to the mall to shop. So we didn't go to the mall.
+There wasn't, you know, we didn't live in a neighborhood. My parents didn't drive us places. Um, the city of Johnstown to, like, go to the mall up in Richland and things like that, you know, that was probably 30, 35 minute drive and, you know, my parents didn't really have money, so they didn't just go to the mall to shop. So, we didn't go to the mall.
 
 Alexis: Did you get paid for your farm work? Um, so if it was a good day my uncle gave us, like, a quarter. Um, normally we got sent home with potatoes, corn, chicken, beef.
 
@@ -264,7 +264,7 @@ So, I mean, I guess there was some, like, family time, but I wouldn't necessaril
 
 Alexis: And then, sorry to jump back to where we were before, but after you guys went to Terre Haute, you kind of talked about Pap going to work. He worked at J.I. Case. Um, after that job, where did he, what did he do? 
 
-Karen: Um, so he got laid off from that job, and then he got a job at Rolls-Royce. At that point, it was Allison Engine Company in Indianapolis. So, again, then every day he was driving, like, an hour and 15, hour and 30 minutes, you know, two ways, driving to work, working all day, and then coming back.
+Karen: Um, so he got laid off from that job, and then he got a job at Rolls-Royce. At that point, it was Allison Engine Company in Indianapolis. So, again, then every day he was driving, like, an hour and fifteen, hour and 30 minutes, you know, two ways, driving to work, working all day, and then coming back.
 
 So, you know, again, there wasn't really a lot of time with him because, you know, he had long days. 
 
@@ -287,13 +287,13 @@ Um, so he was very cool. When I got to Terre Haute, I'm not sure what the percen
 
 I did have Black friends, but I don't, I wouldn't see it as, um, as racially harmonious where, like I said, Pennsylvania, the kid from juvie was the cool kid. 
 
-Alexis: So it was like, it was people, they didn't get along? It was like, uh, it was like racism? 
+Alexis: So, it was like, it was people, they didn't get along? It was like, uh, it was like racism? 
 
 Karen: I don't know. I just, there were, like, I didn't care who my friends were.
 
 Um, when I was in high school there, we had an Italian exchange student and a Finnish exchange student, um, and I don't remember any exchange students in Pennsylvania, so I just, like, never had bounds of who my friends were. I didn't, you know, I didn't care. Um, I ended up being really good friends with the girl from Finland.
 
-We still keep in, um, contact, not a lot, but, um, but I had Black friends in Pennsylvania, or, I'm sorry, not Pennsylvania, in Terre Haute. I just don't know that that was something that, people did it, it just wasn't as much. It was probably more people stayed friends along racial lines, if I kind of had to ad-lib it.
+We still keep in, um, contact, not a lot, but, um, but I had Black friends in Pennsylvania, or, I'm sorry, not Pennsylvania, in Terre Haute. I just don't know that that was something that people did it, it just wasn't as much. It was probably more people stayed friends along racial lines, if I kind of had to ad-lib it.
 
 Alexis: Um, and then you graduated in Terre Haute.
 
@@ -301,13 +301,13 @@ Karen: Yep.
 
 Alexis: Um, I had another question. Do you recall Pap's, like, uh, work ever stabilizing, or was it inconsistent for the rest of his career? 
 
-Karen: Um, so he, so that, that kind of took you to trail to Rolls-Royce, so they let me stay and graduate, so I spent two years there. Then my parents, um, moved to the Greenwood area, and my dad had a job at Rolls-Royce. Um, he, he did retire from Rolls-Royce, so he had stability from 19, he, he probably started there in 86, and he retired in 2003.  And it did, it did, it did change jobs. I mean, it was, I think at one point, it was three companies in three years. It was Allison Engine Company, then I think it was just Allison, or, sorry, I think it was Allison, then it was Allison Engine Company, and then it was Rolls-Royce, so there was some stress for him there with all those corporate changes over the years, but, um, he did, you know, he did stay. 
+Karen: Um, so he, so that, that kind of took you to trail to Rolls-Royce, so they let me stay and graduate, so I spent two years there. Then my parents, um, moved to the Greenwood area, and my dad had a job at Rolls-Royce. Um, he, he did retire from Rolls-Royce, so he had stability from nineteen, he, he probably started there in eighty-six, and he retired in 2003. And it did, it did, it did change jobs. I mean, it was, I think at one point, three companies in three years. It was Allison Engine Company, then I think it was just Allison, or, sorry, I think it was Allison, then it was Allison Engine Company, and then it was Rolls-Royce, so there was some stress for him there with all those corporate changes over the years, but, um, he did, you know, he did stay. 
 
 Alexis: What was the move to Greenwood like for you? 
 
 Karen: It was kind of a non-event.
 
-Um, I remember the house my parents bought had a ton of wallpaper, my mom didn't like it, and it was probably, they bought the house, but didn't live in, in it for maybe two or three months, because they wanted to let me finish high school, but I do remember, I think it was like April or May, they brought me over one weekend, and I just stripped wallpaper. They left me at the house, and I think about this now by myself, there was no phone or anything, and they went back to Terre Haute, and all I did was strip wallpaper all weekend.  And then, you know, I graduated from high school there, um, but then I went to college in August, so I, you know, it was kind of a non-event for me. It's not like I had high school friends in Greenwood, or even really made friends, because, um, you know, we moved, we moved, I think that was the summer I got my, um, wisdom teeth out, um, and I started college, so I honestly don't even think I worked that summer, so I never really have had air quotes 'Greenwood friends' from like that period in my life.
+Um, I remember the house my parents bought had a ton of wallpaper, my mom didn't like it, and it was probably, they bought the house, but didn't live in, in it for maybe two or three months, because they wanted to let me finish high school, but I do remember, I think it was like April or May, they brought me over one weekend, and I just stripped wallpaper. They left me at the house, and I think about this now by myself, there was no phone or anything, and they went back to Terre Haute, and all I did was strip wallpaper all weekend. And then, you know, I graduated from high school there, um, but then I went to college in August, so I, you know, it was kind of a non-event for me. It's not like I had high school friends in Greenwood, or even really made friends, because, um, you know, we moved, we moved, I think that was the summer I got my, um, wisdom teeth out, um, and I started college, so I honestly don't even think I worked that summer, so I never really have had air quotes 'Greenwood friends' from like that period in my life.
 
 Alexis: Were you the first in your family to go to college? 
 
@@ -320,7 +320,7 @@ Karen: I think it was the expectation for myself. I don't know, it wasn't someth
 (31:15 - 31:59)
 Alexis: Where did the expectation for yourself come from? 
 
-Karen: I didn't want to be poor. I didn't want to, I didn't want to have the life my parents had. I wanted to do better, and not that they did bad, but I felt like if I had an education, then I could do better.
+Karen: I didn't want to be poor. I didn't want to; I didn't want to have the life my parents had. I wanted to do better, and not that they did bad, but I felt like if I had an education, then I could do better.
 
 Alexis: Did they help you with the steps? Like, it takes steps to get into college. Like, you have to apply to take the SAT. Did they help you with those, or did you have to figure it out on your own? 
 
@@ -334,17 +334,17 @@ Karen: I don't know, like, I honestly don't even ever remember studying. I don't
 (31:59 - 34:46)
 Karen: My parents may have helped me, but to be honest, I don't remember them helping me, but I don't really remember what you did to apply. I'm sure it's quite different now than it was. At that point, you know, people pretty much went to college wherever they lived.
 
-It wasn't like now. People apply, you know, 10 different places all across the country, so it was kind of a no-brainer. My parents had me apply, wanted me, wanted me and I don't think I did it, to apply to Indiana State, and I said I had no interest in going back to Terre Haute. So to be honest, I only probably applied at IU, and that was it, and I had good grades, so I got in.
+It wasn't like now. People apply, you know, ten different places all across the country, so it was kind of a no-brainer. My parents had me apply, wanted me, wanted me and I don't think I did it, to apply to Indiana State, and I said I had no interest in going back to Terre Haute. So, to be honest, I only probably applied at IU, and that was it, and I had good grades, so I got in.
 
 Plus, it also, like I said, it wasn't the institution it is today, and people didn't travel out of state as much to go to school, so it wasn't like a difficult thing. 
 
 Alexis: Did you feel like in high school and in college that your background was similar to other people's or it was different?
 
-Karen: So for high school, I would say different in some senses that we were not as well off. In Terre Haute or in Johnstown? In Johnstown.
+Karen: So, for high school, I would say different in some senses that we were not as well off. In Terre Haute or in Johnstown? In Johnstown.
 
 In Terre Haute, my dad had a more steady job, so not so much that. I was probably different in the sense that, you know, like I said, I didn't have a problem having Black friends. I didn't have a problem being friends with the exchange students, so I think it wasn't maybe. Maybe it was different just because who I was, and I wanted to see the bigger world, and I didn't put limits on myself. 
 
-Alexis: Do you, so do you know where that like spark to see the bigger world came from? Like was it books or television?
+Alexis: Do you, so do you know where that like spark to see the bigger world came from? Like, was it books or television?
 
 Karen: Never really watched TV. 
 
@@ -376,7 +376,7 @@ Alexis: Is there anything I didn't ask you about that you feel was important to 
 Karen: No, the only other thing I can kind of add, you're talking about steel mills, there also was, you know, the mines were really big in that part of Pennsylvania as well.
 
 (36:32 - 41:05)
-Karen: And I think they also, tying into the the fabric of Johnstown, I do think, you know, the mines had some of their challenges. I don't think that they had as many layoffs, but I do think some of that probably occurred at the same time, so there probably were multiple, and maybe that's why I didn't feel so, you know, isolated in the sense like this only happened to my family. It was happening to lots of families.
+Karen: And I think they also, tying into the fabric of Johnstown, I do think, you know, the mines had some of their challenges. I don't think that they had as many layoffs, but I do think some of that probably occurred at the same time, so there probably were multiple, and maybe that's why I didn't feel so, you know, isolated in the sense like this only happened to my family. It was happening to lots of families.
 
 Alexis: Was it something people ever talked about, like the mills or the coal and the economy or job loss? 
 
@@ -388,7 +388,7 @@ Karen: No, not that I recall, no.
 
 Alexis: Do you think, so it wasn't, was it like normal to have people's like fathers going away for work? 
 
-Karen: I would say no. I would say a lot of people just stayed until like the layoff was over, the strike was over. I mean, you know, when you talk about talking to people, I mean, so, you know, my life really was when I went to school, I saw people at school, but then I never really saw them again.
+Karen: I would say no. I would say a lot of people just stayed until, like the layoff was over, the strike was over. I mean, you know, when you talk about talking to people, I mean, so, you know, my life really was when I went to school, I saw people at school, but then I never really saw them again.
 
 Like, you know, there weren't homework studies, you didn't go to people's houses, didn't really talk on the phone, so it's not like I had friends or friendships. I guess it's a weird way to put it, but, you know, and for my parents' friends, nobody had a girl that was my age. So even when the families, you know, like I said, my dad, my parents' friends would get together and help each other when they would get together and they would like, you know, have an evening and the parents, they all played canasta, they played cards, and us kids all played together, like there was nobody my age.
 
