@@ -22,7 +22,7 @@ Alexis Shoulta interviewed Thomas Demko on October 5, 2025.
 
 Thomas Demko was born April 10, 1942, in Johnstown, Pennsylvania. He grew up outside of town in the mountains and describes what his home was like growing up. Most of his family were from Johnstown, and his sister currently lives there. He moved to Chicago in 1961 and was drafted from there in 1964. He left the army in 1966.
 
-Tom's father worked in the steel mills, and he also was laid off for significant amounts of time. During Tom's career, his employment as a draftsman in the steel industry was across the Eastern United States, and he was laid off eleven times. He was a United Steelworkers union member.
+Tom's father worked in the steel mills, and he also was laid off for significant amounts of time. During Tom's career, his employment as a [draftsman](https://digitalarchives.powerlibrary.org/papd/islandora/object/papd%3A247901) in the steel industry was across the Eastern United States, and he was laid off eleven times.[^1] He was a United Steelworkers union member.
 
 He recalls that his wife Ruth was laid off from her job right before they were married. Once they were married, she stayed home with the kids and took care of the house. Whenever Tom was laid off, she managed all the finances. He recalls during the layoffs he would put out resumes and get back one for every eleven he completed. When Tom was able to get to work, it was sometimes fifty miles to 165 miles away. For the jobs that were farther away, he would only come home on the weekends.
 
@@ -32,6 +32,7 @@ He currently lives with Ruth in Greenwood, Indiana.
 
 
 ## Transcript
+Note: In this oral history Tom's wife Ruth is occassionally referred to as "Glammy."
 
 (0:00 - 3:00)
 Alexis Shoulta: Thank you for being willing to share your experiences with me today. As I've previously mentioned, this study aims to collect oral histories and recollections of deindustrialization in Johnstown, Pennsylvania. I'm studying the impact of changes in the work environment on families and people's life experiences. 
@@ -259,5 +260,8 @@ Tom: I don't know.
 Alexis: Okay 
 
 Tom: Well that was a short one. 
+
+## External Resource Citations
+[^1]: “Men Looking At Drawings”, Pennsylvania Highlands Community College - Iron, Coal, and Steel Industry Collection. [https://digitalarchives.powerlibrary.org/papd/islandora/object/papd%3A247901.](https://digitalarchives.powerlibrary.org/papd/islandora/object/papd%3A247901)
 
 
