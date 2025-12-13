@@ -41,7 +41,7 @@ Joyce also recalls there being tension between her father and her maternal grand
 
 She says her family found respite in their Ukrainian family. She would go over to her Aunt Irene's house, and they would go on little bus trips, or her aunt would buy them things. There were a lot of good memories at her aunt's house, and she helped them a lot. Joyce thinks that if her family had been isolated it would have been very difficult. 
 
-Joyce recalls the changes in Johnstown. She remembers it being busy downtown, and her mother taking the kids to (Glossers) [https://www.loc.gov/item/pa2326/] to go shopping or walk around the park.[^1] However, as the layoffs started and Joyce went to college to town declined very quickly. She recalls coming back from college and the change being noticeable.
+Joyce recalls the changes in Johnstown. She remembers it being busy downtown, and her mother taking the kids to [Glossers](https://www.loc.gov/item/pa2326/) to go shopping or walk around the park.[^1] However, as the layoffs started and Joyce went to college to town declined very quickly. She recalls coming back from college and the change being noticeable.
 
 She thinks this had a significant impact on kids in her generation because their parents told them not to stay in Johnstown. She says the sentiment from their parents was that they were going to go to college and get a job somewhere else. For her personally, she thinks that not going to college was not an option for her in her family. Her father wanted her to get a job with computers because he thought computer jobs would make money. But overall, she thinks what he was saying was that he did not want her to work a labor job. She thinks this sentiment was also happening in her extended family and her friends’ families where the parents wanted the kids to do something "better" for themselves.
 
@@ -402,4 +402,4 @@ Joyce: Yeah, no problem.
 Alexis: I'm going to pause then.
 
 ## External Resource Citations
-[^1]: Historic American Buildings Survey, Creator, Cambria Iron Company, Joseph Johns, Kim E Wallace, Sponsor America'S Industrial Heritage Project, Terri L Hartman, and Alison K Hoagland, Lowe, Jet, photographer. Downtown Neighborhood, Johnstown, Cambria County, PA. Pennsylvania Johnstown Cambria County, 1933. translateds by Wallace, Kimmitter Documentation Compiled After. Photograph. (https://www.loc.gov/item/pa2326/.) [https://www.loc.gov/item/pa2326/]
+[^1]: Historic American Buildings Survey, Creator, Cambria Iron Company, Joseph Johns, Kim E Wallace, Sponsor America'S Industrial Heritage Project, Terri L Hartman, and Alison K Hoagland, Lowe, Jet, photographer. Downtown Neighborhood, Johnstown, Cambria County, PA. Pennsylvania Johnstown Cambria County, 1933. translateds by Wallace, Kimmitter Documentation Compiled After. Photograph. [https://www.loc.gov/item/pa2326/.](https://www.loc.gov/item/pa2326/)
