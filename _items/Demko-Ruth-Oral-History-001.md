@@ -57,7 +57,7 @@ Ruth: Hi, Lexie.
 
 Alexis: Where and when were you born? 
 
-Ruth: I was born in Youngstown, Ohio, June 1st, 1940 in St. Elizabeth Hospital.
+Ruth: I was born in Youngstown, Ohio, June 1st, 1940 in [St. Elizabeth Hospital] (https://digital.lib.ecu.edu/24504).[^1] 
 
 (0:55 - 1:29)
 Alexis: And where do you currently live? 
@@ -337,3 +337,8 @@ Alexis: Well, thank you so much for telling me all that.
 
 (31:42 - 31:43)
 Ruth: Okay, you're welcome.
+
+## External Resource Citations
+[1^]: St. Elizabeth Hospital, Youngstown, Ohio. 1920-1929. Hospital Postcard Collection. LL02.26.29.11. East Carolina University Digital Collections. [https://digital.lib.ecu.edu/24504] (https://digital.lib.ecu.edu/24504)
+
+
