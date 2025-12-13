@@ -19,7 +19,53 @@ teammember: "Alexis Shoulta"
 
 ## Interview Summary
 
-Lorem ipsum dolor sit amet consectetur adipiscing elit. Quisque faucibus ex sapien vitae pellentesque sem placerat. In id cursus mi pretium tellus duis convallis. Tempus leo eu aenean sed diam urna tempor. Pulvinar vivamus fringilla lacus nec metus bibendum egestas. Iaculis massa nisl malesuada lacinia integer nunc posuere. Ut hendrerit semper vel class aptent taciti sociosqu. Ad litora torquent per conubia nostra inceptos himenaeos.
+Joyce Homan was born May 3rd, 1970 in Johnstown, Pennsylvania. She lived in Johnstown until she graduated high school and moved to Philidelphia for college. She has since returned and works as a librarian at the local library.
+
+Both of Joyce's parents were born and raised in Johnstown. Her father was a second generation Ukrainian-American, and her mother's family had been in Pennsylvania since the 1700s. Her father worked on the floor as a laborer for Bethlehem Steel and most of her male family members of both sides of her family worked in eith the steel mills or the mines.
+
+The steel mills were a big part of Joyce's family's life. Working on the floor there were three shifts her father could be working any given day. Although sometimes he could choose which shift to work, other times he didn't have much of an opportunity to say no. She thinks that this was based upon the mill production and what they needed. Joyce recalls that her family's house was built around her father's inconsistent work schedule. Sometimes he would need to sleep during the day, and the kids would need to be quiet. The job would impact his mood, and she also recalls he would track home dirt and occasionally have burns.
+
+Their household was organized traditonally. Joyce grew up raised Protestant. She says that this had an influence, but it was also just the way things were. Her father would be out working and her mother was home as a homemaker. Her mother had previously worked in a sewing shop in Cambria City before she was married, but stopped after she married and had kids. Although their family had traditional gender roles, Joyce doesn't think her father was particularly opposed to her mother working, and he had two sisters who had jobs. However, her mother had a heart condition that required multiple surgeries, and Joyce doesn't think her mother would have been phsyically able to care for the kids and go to work.
+
+Because of the inconsistency of her husband's schedule, Joyce's mother kept the house, cooked and did most of the emotional labor. She says her father would try to make it fun for the kids at various points, but like lots of men during men during the period he wasn't there all of the time.
+
+When asked about the layoffs in the steel mills in Johnstown, Joyce recalls that like most famlies of people working on the floor of the steel mills, they did not have a lot of money. They already lived on a thinner edge, and then the layoff left them scrambling. They couldn't afford to not have any form of income. They had to get governement assistance such as receiving food like government cheese.
+
+Joyce's father became depressed during the times he was laid off. She says his family's immigrant background made a strong impression on his work ethic, and losing working was a loss of part of his identity. He hated having to receive assistance. Joyce's father was old enough to live through the depression when he was younger. She thinks that he felt like he grew up in difficult finances and had a determination to work hard so his family would not have to worry about money that way again. But then they did.
+
+She says these times were also hard on her mother because hse was trying to take care of the kids, herself and then also help her husband. And although the gender roles didn't change durning the layoffs it was a different dynamic to see the family provider struggling.
+
+Joyce father was laid off several times before he eventually retired. During the layoffs he would do day labor work or a couple weeks work in construction. This would provide some income for the family. 
+
+She recalls the layoffs as being difficult for the family. Because of the job insecurity her father was very frugal. Her mother would always be looking for bargains and using coupons. Being a teenager, Joyce would want certain clothes or shoes and would not be able to buy them. Instead, she wore clothes her mother made, or hand me downs. At school the kids qualified for free lunches. She recalls this being very obvious to other children, and embaressing. There were also periods where the family didn't have healthcare
+
+Joyce also recalls there being tension between her father and her maternal grandfather. Her grandfather was a boss in the mill, and he had money. Whenever he came to see them he would drive a new Cadillac, and although he helped in some ways, Joyce does not recall it being a lot. She also thinks that there was tension between them because her father viewed her grandfather who was a boss as part of the group responsible for the layoffs in the mills. Especially because he didn't financially struggle from it.
+
+She says her family found respite in their Ukrainian family. She would go over to her Aunt Irene's house and they would go on little bus trips, or her aunt would buy them things. There were a lot of good memories at her aunt's house, and she helped them a lot. Joyce thinks that if her family had been isolated it have been very difficult. 
+
+Joyce recalls the changes in Johnstown. She remembers it being busy downtown, and her mother taking the kids to Glossers to go shopping or walk around the park. However, as the layoffs started and Joyce went to college to town declined very quickly. She recalls coming back from college and the change being noticable.
+
+She thinks this had a big impact on kids in her generation because their parents told them not to stay in Johnstown. She says the sentiment from their parents were that they were going to go to college and get a job somewhere else. For her personally, she thinks that not going to college was not an option for her in her family. Her father wanted her to get a job with computers because he thought computer jobs would make money. But overall she thinks what he was saying was that he did not want her to work a labor job. She thinks this sentiment was also happening in her extended family and her friends families where the parents wanted the kids to go do something "better" for themselves.
+
+Joyce recalls that her father was involved in the union and that we could go out and talk with a coffee klatch of guys. She says they had a lot of anger at the mill, the bosses, the union because they felt unsupported. They also would talk about how horrible the conditions were in the mills. She would go to the library while her father union meetings. Afterwards he would talk to her and complain how the negotiations were going. The union was trying to play both ends, to save the workers' jobs but degrading their protections to do it. She says this would put them in unsafe positions.
+
+In Johnstown, Joyce says the workers in the mills were not respected or valued. They made a living wage, but she feels that the work stole some of her father's life and by extension her family's. It makes her sad.
+
+Joyce recalls driving by a sign nexy to the U.S. Steel mill in Moxham there was a board they would drive past when they went to church on Sundays. It would say home many days there had been without an accident. When she was a little kid she would always check the board. For her it was connected to her father and her perception of his safety. She says that if you saw the number go down to zero or a few days you would know someone had been injured. She says people knew the conditions in the mills were bad. Sometimes her father would come home angry or silent, and her mother would tell her someone got hurt or killed on the job, and her father would witness it. She knows at least once someone fell in a vat of boiling metal and died. 
+
+She says the people in their sphere all saw and knew how dangerous it was.
+
+Once when she came home from college, Joyce recalls her father asking her to help him write a letter of protest because they were going to take his pension away. He was worried if he lost his pension and passed away Joyce's mother would not have any income to sustain her. He felt very strongly that she wouldn't be able to go out and get a job if something phsyically happened to him. So losing his pension would have been a big deal.
+
+After fifth grade Joyce's father built a house in Vinco, so she went to high school in the County seat, Ebensburg. For Cambria County Ebensburg was affluent. She says the mixture between the poorer working class kids and the kids with money in Ebensburg was uneasy. She recalls the layoffs as being shameful. She didn't talk about them with the Ebensburg kids because it would be a quick way to get bullied. Joyce felt more comfortable with kids that came from similar backgrounds as her, they got it a little more. She would talk about what was happening with her father at home with her closest friends that had a similar background.
+
+Joyce says being in the gifted program at school, and her teachers helped her to guide her in her college applications. She says she learned how to perform some clas things from the richer kids around her at school. Joyce had imposter syndrome about moving to the city, and there was a lot to figure out. However, the people relates the most to and have been her closest friends coem from similar backgrounds.
+
+She worked several jobs throughout her life and became a librarian in her forties.
+
+Joyce wants peope to continue to tell their stories from Johnstown and to remember the people who gave a bif part of their lives to the steel mills and the mines because their lives were built on their labor. 
+
+Joyce currently lives in Mineral Point, Pennsylvania.
 
 ## Transcript
 
