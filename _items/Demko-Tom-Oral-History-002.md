@@ -66,6 +66,7 @@ Tom: grandfather.
 
 Alexis: Thank you for being willing to share your experience with me today.
 As I previously mentioned, this study aims to collect oral histories and recollections of deindustrialization in Johnstown, Pennsylvania. I am studying the impact of changes in the work environment on families and people's life experiences. Our interview today should last approximately an hour.
+
 I'm going to ask you a series of questions about your family and experiences with steel in Johnstown. This interview is being recorded for oral history preservation and historical analysis purposes. If you need to take a break at any time, let me know, and I can pause the recording and interview.
 We'll go back over your consent form at the end of the interview to review and confirm your previous choices.
 
@@ -76,9 +77,11 @@ Alexis: Okay.
 (0:44 - 3:38) Tom: The only thing that I'll add to what Ruthie was saying previously that on the finances, um, the first job shop I had was through my boss at U.S. Steel. And I wound up, uh, working for Allstate's design and development. And, uh, from U.S. Steel, I got, went from a detail draftsman up about four steps to a design, designer.
 And some of the questions that they asked at this job is how you, uh, calculate the, uh, end radius on steel, uh, because they were making heat pump equipment. And it was one-third the thickness of the steel added up to the radius, uh, for figuring out the length of the piece of steel that you were making for the part. Um, I worked for that company, uh, a little over a year and they had a cutback.
 And at the time the cutback came, I had to take a 15% cut in pay. Uh, the fellows out in the shop were getting five bucks an hour. I think I started there at $13 an hour.
+
 And this went on, uh, until the fall when I got, uh, laid off, uh, permanent type thing. Uh, didn't know when I was going back there. So, at the employment office, they said, you got to take a lower-class job.
 But I was doing everything from running the prints through the design. I was the only draftsman really there, engineer, well, they had other engineers. But, uh, anyhow, I said, uh, do you, would you like me to work one day a week for ten bucks an hour or two days a week for five bucks an hour? And they jumped it to five bucks an hour, which was a real small amount of money.
 But I still could be able to affect unemployment because I'd only be working, uh, two days a week. Uh, which this built up over the 26 weeks that you normally get on unemployment. So, this would give me maybe 30, 35 weeks of, uh, unemployment that I could, uh, get.
+
 One time when I was, uh, unemployed and they said, you have to sign up, uh, with the company, uh, to show that you were there for an interview. And they had a tablet on the countertop and they said, just sign your name. And some of the questions they'd ask you if they were, uh, uh, working with the state a little bit, they'd say, well, how many people besides your family are you keeping in your household? It wasn't how much you knew or what you could do or anything like that.
 
 (3:39 - 4:06) Tom: And this was in most of the cases in Pennsylvania for me. Uh, we went to Florida for, uh, three days. I had eleven interviews.
@@ -91,6 +94,7 @@ Alexis: Who was Amy?
 
 Tom: Amy was the lady, retired schoolteacher that owned this farm, and she would take renters in. And we would uh, get in there Saturday night, Sunday, uh, Monday, Sunday night, uh, Monday morning, we'd pack our lunches, go to work.
 Uh, we'd do that until Friday. Uh, Friday, we packed our lunches and straight from work, we'd head back to Johnstown for our wives for $38 a week. It was cheap.
+
 And I think about the second or third week, I told Ruthie that, uh, we're going to be draining our kids' college funds and, uh, we can't keep doing this. But we had an insurance man at, uh, for New York Life that would come and talk with us quite often. And anyhow, uh, where he lived, he took his next-door neighbor's daughter to the Pittsburgh airport from Johnstown.
 And she says, Mike, if you ever need anything, just ask. So, a couple weeks later, he thought, ‘I'm going to go do this, call for Tom.’ So, he called her up and she said, Mike who? And Mike was a good talker.
 
@@ -104,13 +108,17 @@ Alexis: Was that because, because Amos was black?
 Tom: Yeah, Amos was, uh, African American and we were friends. I would jump out of the car on, uh, Tibbs and Amos would drive my car over to Lilly's because it was further away.
 And guys saw this and they said, 'You’re letting Amos drive your car?' 'Yeah,' I said, 'What? Amos is Amos.' Uh, there's a lot of prejudice against Black people, but I never felt that. I felt good.
 Uh, but anyhow, we used to pick hitchhikers up and we would give them the change out of the, uh, from whenever we bought gas. We didn't have credit cards at that time. And the change left over from the gasoline bill, we would hand it to these guys.
+
 One time we picked up a, uh, fellow that was, uh, heading for Arizona and he said he actually, back east, he was a good talker. He talked, uh, better talk when he got in and found out Amos and I were Christians. And he, uh, changed his speaking just automatically like that from, he turned off the light, and it became dark.
 Uh, anyhow, he had a, uh, a policeman in, uh, Silver Spring, Maryland driving eight miles out of his district. Yeah, that's how good of a talker he was. And he told us all kinds of stories, and he had us in stitches.
+
 He says 'whenever you're down and out and you can't afford, uh, a warm place to stay, you look at the nice hotels, go in and go up to the counter and tell the guy, I'm going to sit over there in that chair for 30 minutes and I'm going to leave.' And he says, 'What you do is you watch the elevator come down. And when the fella comes down with a bimbo and he ducks the keys into the ashtray, uh, when they get out of sight, you go over there and take the key out. You've got a good warm place to sleep, sleep that night.'
+
 And he says, uh, usually, uh, Kentucky Fried Chicken. He says, 'you go in here just 30 minutes before closing time and, uh, tell the lady, I'm destitute. Could you pack the, uh, excess chicken and French fries, put them in a bag, put them in the dumpster. I'll pick them up after you close.' So, he says, 'you can eat well and sleep well, but you just have to know how to do it.'
 
-(9:23 - 18:18) Tom: Um, and with what, uh, the finances, Ruthie took care of her, everything. When I, uh, worked at, uh, BFY in York, uh, she got the checks, uh, she cashed them. Uh, when I worked for All States, uh, they sent them to the house.
+(9:23 - 18:18) Tom: Um, and with what, uh, the finances, Ruthie took care of her, everything. When I, uh, worked at, uh, BFY in York, uh, she got the checks, uh, she cashed them. Uh, when I worked for Allstate, uh, they sent them to the house.
 One time she accidentally ripped off the check, but they issued another one. Uh, and when I worked in Terre Haute, uh, CDI was the, uh, I think the job shop company, and they just mailed them to Ruthie. Uh, and Ruthie gave me the checkbook.
+
 I had a checkbook, uh, in Terre Haute, and I would live on $15, $20 a week. And, you know, I'd get down to Kmart on Wednesday, they had fried chicken special, and, uh, the ladies there were, you could tell they were making minimum wage, and I would slip them a tip, and I said, 'oh, if you happen to have any chicken breasts that are fried, I'd appreciate that.' So, my dinner consisted, it was all you could eat.
 It was all chicken, and, uh, french fries, or, uh, quartered potatoes, or, and a vegetable.
 
@@ -138,7 +146,9 @@ Tom: Down in Terre Haute, yes.
 Alexis: Okay. Um, and then, how, so how did you end up becoming a draftsman?
 
 Tom: Oh, uh, when I was in high school, it was, I think, the first year that they offered, uh, uh, drafting, and I had four years in math, and, uh, drafting was the fifth credit. And now, going back after that, uh, high school went to Indiana State Teachers College, Indiana, Pennsylvania, and anyhow, I was asked to sit out a semester, because my grade point was 1.6.
+
 Uh, so I don't smoke. My dad doesn't smoke, but somehow, we happened to get a, uh, matchbook, and we had, from Chicago Technical College, 145 bucks for, uh, a two-year drafting course, and you got five, uh, free classes, and they said 90% of the people they found jobs for. So during this, uh, uh, being away from Indiana State Teachers College, uh, I took the course, and, uh, the two-year course I completed in eight and a half months with an A average, and I headed for Chicago in the fall, and, uh, stayed at the YMCA the first night when I got there. Uh, Monday morning, I went down to the college and registered, took, uh, three math courses in industrial organization and psychology and industry, and I got two, three As and two Bs in those courses, and, uh, they gave me, uh, address for Mrs. Sievers' boarding house on the near north side.
+
 So, I, two transfers, and on the bus, and it took me three hours lugging a suitcase to get there. That was $25 a week for room and board, and she wanted $25 in advance, and that was good, and we were negotiating. Some fella came in the door, and she says, 'are they hiring out where you're working?' He says, 'yeah.'
 So, I went out there the next day in my suit, and they weren't taking applications that day, but I was in a suit and tie. I went back the next day. I was the only one that was hired.
 They were hiring the next day. I got five raises in nine weeks. I started out minimum wage of $1.35 an hour, and each raise was a nickel an hour, and that was, that African American is the only supervisor I had that I, I couldn't comprehend him ahead of time.
@@ -149,6 +159,7 @@ Alexis: Did you join the army, or were you drafted?
 
 Tom: I was drafted. Uh, well, previously, I had to take tests down, uh, downtown Indian-, uh, Chicago someplace.
 I can't remember where it was, but there was a black fellow to the right of me, and he wanted to get in so bad, but he didn't have the knowledge, and somehow, between one of the, one of the tests that were taken, he told me his situation, and I let him look at my papers. Uh, I did very, very well on the army tests except for the, uh, uh, tele, telegraph stuff. They had L, M, and N, I think, or K, L, and N, and I think I got an eighty-six on that.
+
 Everything else was over 120. Yeah. Anyhow, after basic training, uh, we had a second lieutenant that was, uh, went through OCS.
 He was 19 years old. This is July, Fort Knox, and you don't want to be there going through basic training, because we had guys falling over left and right. They're giving salt tablets.
 The, uh, first class sergeant, uh, grabbed a hold of the second lieutenant, put him in the office, and told him to stay there, and he took over, and he, he saved a, uh, training, uh, company. After that, uh, anyhow, I saw what was going on, and this guy went through OCS. He's 19 years old.
@@ -163,6 +174,7 @@ Tom: Officers Candidate School. Sorry.
 So, anyhow, we get out there, and they dump us off in the truck, eight o'clock in the morning, and they said, you got to use the metrics and get to wherever, and, uh, the trouble when you run through this obstacle course, the truck will pick you up. So, anyhow, I looked at all the stuff that was on there, and they said, they're going to pick us up on top of the hill. We're not going to do all this stuff.
 It's a waste of time, which it was. Anyhow, we got out of the woods when we saw the truck get there, and we hopped on and went back, but, uh, basic training was sort of easy, but what happened? I was supposed to go to Fort Lee, Virginia engineering because of my scores, and anyhow, they took all of us guys that were for OCS and dropped out. They put us up, lined us up on the field, and anyhow, they said, all you guys that haven't had, uh, four years of math in high school, take two steps backwards.
 All you guys that did have four years, I had five, uh, take two steps forward. All you guys in the back or in the infantry, all you guys at the front are the artillery. So, I wound up going to Fort Knox, uh, Oklahoma Artillery School.
+
 So, I, uh, did very well there, and anyhow, wound up going to Brooklyn Navy Yard. Got a flight to Brooklyn, my first airplane flight. Uh, anyhow, we get on, uh, USS Maurice Rose, and there's some guy said, 'oh, we're going on a cruise ship. They can't give us any job,' and I figured, you're dumber than a monkey. So, I went looking for my job. I worked to get a job in a bakery.
 So, anyhow, uh, I only had spaghetti and powdered milk at Brooklyn, in the Brooklyn Navy Yard, and never tasted such terrible food. Once I got on ship, it, uh, anchors away, uh, I would come back at night, and I would dump out cakes, and mixed nuts, and apples, and oranges, and all the goodies that I could, cookies that I could, yeah, I'd confiscate, laid it out on the bed. 'Okay, guys, come get them'.
 
@@ -183,6 +195,7 @@ It was a, they had nuclear weapons there. We had an honest, it was an Honest Joh
 
 (22:24 - 24:24) Tom: And anyhow, they gave us C-rations from 1942. This is 1960, uh, late sixty-two, early sixty-three. Forty-year-old C-rations in cans.
 Cookie's throwing stuff out. 'Hey, Cookie, could I have that what you're throwing out?' So, I have a C-ration box, and I just throw them in, and we had a band, because I figured someplace along the line, somebody's going to use that stuff. And there were many alerts, and I used to tell guys, if you're going, if they're, if you're on leave, check out five minutes after midnight, because they can't get you on an alert.
+
 There was one fellow who would get out of bed at 10 o'clock. He wound up on alert by the time he washed his equipment. He lost a whole day of leave time.
 I would sign out five minutes after midnight, come back in five minutes before midnight. Five minutes before midnight was not a day of leave. It was a day of work, duty.
 But there's a lot of things I learned in the military. I got free flights to England twice, Spain, Norway. I flew into, got into twenty countries in Europe in nineteen months, and it was a godsend.
@@ -281,8 +294,10 @@ Ruth: They weren't at the same place you were.
 
 Tom: Well, one week I'd come back, one week I'd stay there. I think Ruthie washed my clothes when I came back. Anyhow, there was a Dairy Queen, and one of the chef's, he didn't have any children of his own, but they had four adopted children.
 I used to go down to McDonald's and buy a box of sundaes, and I'd run them over to his house. I'd say, feed the kids, and throw the rest in the freezer. I did that, I don't know how many times.
+
 I was generous helping other people. One guy was building a house, and I offered to help him, and never got a call from him. Near the end, Denny Goose bought a house that was used as a funeral parlor.
 Gigantic rooms in there, and anyhow, he was putting up black walnut cabinets in the front, in the back porch, and he was enclosing it. And I said, what do you want done? And he took me through the house, just astronomical stuff in there. I'd just love to own something like that someday, but I don't want to clean it.
+
 But anyhow, he had a whole bunch of pieces of stuff from the back porch and he had it enclosed, and I was taking the pieces, cutting whatever, and I enclosed the outside and around the windows. I said, boy, he did a good job. Shortly after that, I got the job at Allison's, and that was $15 an hour, no per diem.
 (33:49 - 34:05) Ruth: You didn't get the job at Allison's until after the family was out there.
 
@@ -379,6 +394,7 @@ Ruth: What kids?
 Tom: Gunther, Hardy, and Klaus.
 Klaus was the oldest. Gunther was second. Gunther, he had some kind of sickness.
 He was the weak child in the family. And Hardy was literally a football player. He was a bruiser. They worked at Donnelly's and Son.
+
 They were making over six bucks an hour when I was making a buck thirty-five an hour. They were maintenance guys. Gunther, was he fixed it right.
 It took him a long time to fix it, but he fixed it right. It ran for years. And Hardy, Hardy was bog wire, any kind of tack wire, masking tape, anything he could use to fix something so that they could get the line moving and make money.
 But neither guy was fired. Eventually, Gunther took over Mrs. Sievers' house.
@@ -417,6 +433,7 @@ Tom: Whatever. I mean, they were simple parts, but he had it together.
 
 (43:33 - 44:05) Tom: And he comes over, he says, 'we're going up to the cottage.' 'What cottage?' We don't know anything. [unintelligible]
 Nothing about it. They knew about it. So, we hopped into Cadillac, and we took them up there.
+
 Blackberry briars were about ten feet high. We had to cut our way into the cottage. That's how bad it was.
 Harold hooked up the hot water tank. And I don't know what I was doing. We had enough food.
 We took enough food for whatever. Got to Mass. Found out where the church was.
@@ -536,6 +553,7 @@ Tom: Well, I figured I was making enough money, and I was going to retire at age
 
 Tom: I just figured I'd climb the ladder, but I didn't get above a detailed draftsman where I went in as. Well, there were three steps. Six months, you got a raise.
 Another six months, you were firmly with the company, and you went up the ladders. The older people retired you. So, I figured I'd either make a layout man or checker or designer someplace.
+
 But they closed down in eighty-one. And we got two years of sub added onto that. Two years credit for my employment.
 So instead of 15 years, I got 17 years of credit, which gave us that $287, seventy-seven cents pension. But Ruthie's done a good job with the finances.
 
@@ -554,10 +572,12 @@ But I could use that, use impact wrenches on it. Bought a welder. We welded the 
 
 (53:02 - 54:06) Tom: I took a class before I was married, staying at home at... Trying to think of the name of the little community. [unintelligible], and there was a school up on top of the hill, and I think maybe we paid ten bucks or something for a welding class. It was an electric welding class.
 And he said, anybody that graduates from this class can go get a job for Johnstown Traction Company, which was hard to get into. But he said, 'you're good when you got done.' I made a tongue for Dad's trailers that he put behind the tractor.
+
 And other... I welded the columns for in the house. I think I tack-welded the beams, because we had an 80-wide flange at 18 pounds come over, then a one-foot section, and then it ran over underneath the kitchen, living room, dining area. I think I tack-welded those because I didn't want those to move.
 
 (54:08 - 54:44) Tom: I did make some mistakes on the house. With four-inch cast-iron pipes, it used to be a dollar and a quarter for four feet of cast-iron pipe. And brought them into the center, and then I ran a four-inch pipe out.
 And I should have run an eight-inch pipe out. That's why the foundation... The cellar got flooded in the seventy-seven. I screwed that up.
+
 So, my dad broke that up and hauled that out with Karen and Chris. And I had the cancer at that time, and I couldn't even help pour the floor in it.
 
 (54:45 - 55:17) Tom: I couldn't do anything there.
@@ -586,6 +606,7 @@ Ruth: You needed to get back to the person you were.
 
 Ruth: No, not... I can't think of the word I want to say. But it was probably me saying like, ‘You needed to go back to work.’
 I could see emotionally, mentally, whatever, that you were not recovered, but you needed to go back to work to finish recovery. We got full pay when I was... And we were on six weeks vacation. They had seven and thirteen weeks.
+
 I was in a junior group for seven weeks. But because I only had three [unintelligible]... I only got six weeks. And on the fifth week is when I had the cancer operation.
 So, we lost one week of vacation. It was counted as vacation, not sick leave that time.
 
