@@ -48,7 +48,7 @@ Alexis Shoulta: Thank you for being willing to share your experiences with me to
 Alexis: Our interview today should last approximately an hour. I'm gonna ask you a series of questions about your family and experiences with steel in Johnstown. This interview is being recorded for oral history preservation and historical analysis purposes.
 
 (0:27 - 0:40)
-Alexis: If you need to take a break at any time, let me know and I can pause the recording and interview. We'll go back over your consent form at the end of the interview to record and confirm your previous choices. This is Alexa Schulte interviewing her grandmother, Ruth Demko, on October 5th, 2025.
+Alexis: If you need to take a break at any time, let me know and I can pause the recording and interview. We'll go back over your consent form at the end of the interview to record and confirm your previous choices. This is Alexa Schoulta interviewing her grandmother, Ruth Demko, on October 5th, 2025.
 
 (0:41 - 0:55)
 Alexis: Hi, Ruth. 
