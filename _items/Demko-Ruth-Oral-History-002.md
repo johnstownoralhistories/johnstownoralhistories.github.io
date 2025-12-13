@@ -92,11 +92,11 @@ Our interview today should last approximately an hour. I'm going to ask you a se
 
 If you need to take a break at any time, let me know and I can pause the recording and interview and we'll go back over your concept form at the end of the interview to review and confirm your previous choices.
 
-Okay, so we've talked previously about how your husband was laid off working as a draftsman in Johnstown, Pennsylvania and I kind of wanted to elaborate more on some of the experiences we've previously discussed related to this.
+Okay, so we've talked previously about how your husband was laid off working as a draftsman in Johnstown, Pennsylvania, and I kind of wanted to elaborate more on some of the experiences we've previously discussed related to this.
 
 Can you kind of describe what your day was like as a housewife at home while your husband was working? Like what you would do in a day?
 
-Ruth: Of course take care of the children and make meals. I cleaned, did the cleaning.
+Ruth: Of course, take care of the children and make meals. I cleaned, did the cleaning.
 
 (1:45 - 2:55)
 Ruth: I don't know. My mother lived with us for about three and a half years and so she wants some care. I'm not sure what else to say.
@@ -106,14 +106,14 @@ Alexis: I guess, could you, would you be able to give me an example of like what
 Ruth: Well, when the children were in school, of course I got up and I would get them ready for school and make their breakfast. As they got older I would, I would, sometimes I would go back and lay in bed and listen to what they were doing and then get up and be at the door with them when they were going to go out.
 
 (3:00 - 4:08)
-Ruth: Then after they were all off to school, of course when I had Dana, then my day was comprised of a lot of taking care of her.
+Ruth: Then after they were all off to school, of course when I had Dana, my day was comprised of a lot of taking care of her.
 
 Alexis: What was that like?
 
 Ruth: Well, you know, make sure she had her meal. Depending on how she was doing, what, if I had to do any percussion, I would give her any meds at the time, whatever was going on.
 
 Get her set up for playing and she, and we got her...
- 
+ 
 Tom Demko: Changed diapers.
 
 Ruth: Yes, I changed diapers. I had children in diapers for about 13 years or so.
@@ -135,9 +135,9 @@ Ruth: At supper time, right there in the evening, yes, I could. The caffeine nev
 (5:27 - 6:09)
 Ruth: No, that caffeine didn't seem to bother me.
 
-Alexis; And you also mentioned, and I just want to clarify because I'm not sure if I remember correctly, you did percussion on Dana, which was, was it to help her breathe?
+Alexis: And you also mentioned, and I just want to clarify because I'm not sure if I remember correctly, you did percussion on Dana, which was, was it to help her breathe?
 
-Ruth: If she had pneumonia or whatever, because she couldn't cough, I had to do the percussion on her chest to like loosen up and get her digestive and that relieved.
+Ruth: If she had pneumonia or whatever because she couldn't cough, I had to do the percussion on her chest to like loosen up and get her digestive and that relieved.
 
 Alexis: And Dana had pneumonia quite a few times and you nursed her?
 
@@ -146,19 +146,19 @@ Ruth: Yes, I, yes, I quit counting at 21.
 (6:11 - 6:36)
 Ruth: And so yes, during her times with pneumonia, I would definitely be doing percussion several times a day.
 
-Alexis: So you primarily took care of Dana at home. Were there any resources for assistance with that, with helping take care of her?
+Alexis: So, you primarily took care of Dana at home. Were there any resources for assistance with that, with helping take care of her?
 
 Ruth: Well, she was educated at home.
 
 (6:37 - 7:44)
-Ruth: We had a program, it was called Appalachian Intermediate Unit 8, and they provided teachers. And as she got older, they increased the amount of times a week they would see her. And they would come to the house, they would work with her.
+Ruth: We had a program, it was called Appalachian Intermediate Unit 8, and they provided teachers. And as she got older, they increased the amount of times a week they would see her. And they would come to the house; they would work with her.
 
-And they were different, they were different women, different people, and so their interactions with Dana were different. And they had the different programs. But that last year, she was doing first grade school work, and the school district had wanted to send a kindergarten teacher, not kindergarten, first grade teacher, after her day was done, her, his day was done, to come to our house.
+And they were different, they were different women, different people, and so their interactions with Dana were different. And they had the different programs. But that last year, she was doing first grade schoolwork, and the school district had wanted to send a kindergarten teacher, not kindergarten, first grade teacher, after her day was done, her, his day was done, to come to our house.
 
 (7:44 - 10:06)
-Ruth: And at that time, I objected because that would be too late in the day for her. She would be too worn out at that time of the day. And so they had to go back to an Appalachian Intermediate Unit 8 teacher.
+Ruth: And at that time, I objected because that would be too late in the day for her. She would be too worn out at that time of the day. And so, they had to go back to an Appalachian Intermediate Unit 8 teacher.
 
-But she went to the school district and got all those school books and things and used her first grade was what the schools were doing, too. She was learning the same way.
+But she went to the school district and got all those schoolbooks and things and used her first grade was what the schools were doing, too. She was learning the same way.
 
 Alexis: And then, was Dana able to go and participate in things outside the house, or was it mostly that her schooling, well obviously her schooling was at home, but were her doctor visits also at home, or would she go to the doctor's office, or was she able to go out and do things?
 
@@ -166,7 +166,7 @@ Ruth: No, the doctor's visits were at the doctor's office.
 
 Yes, we took her everywhere. We did not take her around someone who obviously had a cold or was sick, as we did not want her to pick it up. But yes, she was, she vacationed with us.
 
-She, the only thing that she did in a classroom was her first grade religious education, and she was thrilled to be able to do that. She was able. That was her opportunity with fellow classmates, and so she did that.
+She, the only thing that she did in a classroom was her first-grade religious education, and she was thrilled to be able to do that. She was able. That was her opportunity with fellow classmates, and so she did that.
 
 We did not overly protect her, but we protected her. When I say we didn't overly, I mean we took her out. We did places.
 
@@ -181,7 +181,7 @@ Tom: Delaware.
 Ruth: Oh yeah, Delaware.
 
 (10:08 - 13:04)
-Ruth: My sister lived in Delaware at the time, so yeah we took her to Delaware.
+Ruth: My sister lived in Delaware at the time, so yeah, we took her to Delaware.
 
 Alexis: Did you guys?
 
@@ -201,7 +201,7 @@ Alexis: When you would travel, would you bring her wheelchair too? Because I kno
 
 Ruth: Oh, absolutely.
 
-Alexis: So was it like, how did you pack it up in the car?
+Alexis: So, was it like, how did you pack it up in the car?
 
 Tom: It was a foldable one.
 
@@ -215,9 +215,9 @@ Alexis: And that was the one Pap made?
 
 Tom: The chair, yeah.
 
-Alexis: So you built it to intentionally be collapsible?
+Alexis: So, you built it to intentionally be collapsible?
 
-Ruth: No, the base was a stroller base because it started out as a stroller with the stroller seat. And so it was a collapsible base that you attached the seat. And so the seats that Pap had to make, they were made to attach to the stroller base.
+Ruth: No, the base was a stroller base because it started out as a stroller with the stroller seat. And so, it was a collapsible base that you attached the seat. And so, the seats that Pap had to make, they were made to attach to the stroller base.
 
 And eventually the base got a little worn for us. And Pittsburgh Children's Hospital sent a neurologist into our local hospital every six months for muscular dystrophy. And because, no.
 
@@ -240,11 +240,11 @@ Alexis: Was it hard with the wheelchair to like navigate like physical landscape
 Ruth: We didn't have a problem, but I don't think they had ramps like they do now.
 
 (13:05 - 14:26)
-Alexis: I don't remember. Pick up the moving device and chair at the same time as Dana and go from one place to another with it. She only weighed 20 pounds.
+Alexis: I don't remember. Pick up the moving device and chair at the same time as Dana and go from one place to another with it. She only weighed twenty pounds.
 
 Alexis: If you had to go upstairs, did you do the same thing?
 
-Ruth:Yeah. Well, at home.
+Ruth: Yeah. Well, at home.
 
 Tom: We took her up to bed.
 
@@ -294,7 +294,7 @@ He didn't get hired. And I don't know, you know, just why that was. Maybe they m
 (16:59 - 18:25)
 Alexis: And then, I guess, did you work before you were a stay-at-home mom?
 
-Ruth: I did not work after we were married. So what did you do?
+Ruth: I did not work after we were married. So, what did you do?
 
 Alexis: Like, where did you work before you got married then?
 
@@ -302,9 +302,7 @@ Ruth: I worked for an attorney.
 
 Alexis: Did you always plan to not work after you got married?
 
-Ruth: Yes, Pap did not want me to work and I really didn't choose to weither.
-
-I was only going to work like the first six months, but that didn't happen because I got laid off.
+Ruth: Yes, Pap did not want me to work, and I really didn't choose to either. I was only going to work like the first six months, but that didn't happen because I got laid off.
 
 Alexis: And was that, with being laid off, is it the same as like, with, was that in town? Like, was it a cut at the company? Like lots of people stopped working at the same time?
 
@@ -319,7 +317,7 @@ Alexis: Was that a common sentiment?
 Ruth: Um, yes, I think, at those days, yes, that might be that they didn't want a married woman working for them.
 
 (18:28 - 20:41)
-Alexis: I guess, could you kind of, like, could you kind of explain, like, what the cultural, like, I guess, the common understanding of why that was? Was there an understanding, or was it just that it wasn't done?
+Alexis: I guess, could you kind of, like, could you kind of explain, like, what the cultural, like, like, I guess, the common understanding of why that was? Was there an understanding, or was it just that it wasn't done?
 
 Ruth: It may have been some of the old school stuff where the woman belongs at home. I can't really answer for him. Yeah, and it more of like, I guess, a cultural, like, I don't know, like, why, I guess, I'm trying to guess, why maybe people thought that way, but, um, did you ever, after you got married, did you ever want to work again?
 
@@ -337,9 +335,9 @@ Ruth: Well, he traveled to Plum Township for work, which was
 
 Tom: near Pittsburgh.
 
-Ruth: Yeah, it was going towards Pittsburgh. I don't remember, what was it, about an hour,
+Ruth: Yeah, it was going towards Pittsburgh. I don't remember what was it, about an hour,
 
-Tom: 50 miles one way,
+Tom: fifty miles one way,
 
 Ruth: and then he worked in York, Pennsylvania, and he was gone all week, and he came and lived in a boarding house with another fellow that was doing the same from our area, and they traveled back and forth together, and he was at least home on weekends before he went to Terre Haute.
 
@@ -384,7 +382,7 @@ Ruth: Um, but we did it. We did what we had to do, and finally we made the decis
 He had been, he left June 1st of 84, and we left June 2nd of 85, and um, we were there as a family, moved in, [unintelligible] from June to October, and he was laid off again, so that we were again in a less than familiar surroundings to get through this all over again. And then he, uh, got, um, contracting job again, is that the, some of the jobs are contracting jobs, and they're not permanent. So, uh, he was working over in Indianapolis, commuting every day with another fella, an hour and a half each way, and some of the consolation was that he come home at night, so we, he, some of the hours were long, and the trips were an hour and a half long, so he'd get up in the morning, go to work, come home, eat supper, shower, and go to bed.
 
 (25:18 - 30:48)
-Ruth: And so, but at least he was home in the evenings, but we didn't know him much and it's better than being miles apart. Um, and with work being inconsistent, um, and therefore, I guess, paychecks being inconsistent, how did you manage, like, the household money? Like, did you guys change your budgeting or your spending to accommodate? Well, mostly, I think we were always, we were not big, big, elaborate spenders. We learned just, that wasn't us, but the way to cut back was food, not, not putting everything, or there were no treats, no ice cream, no potato chips, no soda, nothing like that.
+Ruth: And so, but at least he was home in the evenings, but we didn't know him much and it's better than being miles apart. Um, and with work being inconsistent, um, and therefore, I guess, paychecks being inconsistent, how did you manage, like, the household money? Like, did you guys change your budgeting or your spending to accommodate? Well, mostly, I think we were always, we were not big, big, elaborate spenders. We learned just that wasn't us, but the way to cut back was food, not, not putting everything, or there were no treats, no ice cream, no potato chips, no soda, nothing like that.
 
 Just ate what you, bought what you had to buy.
 
@@ -408,7 +406,7 @@ Alexis: And you, I know you liked to bake. Did you like to cook too? Like, did y
 
 Ruth: It was just something, it was my, my job. I just did it.
 
-I guess, I don't know, I guess I liked it. I didn't like the clean up. I did all the pots and pans and that, but, um, yeah, it was just, it was almost, I guess, well into that category where this is what the woman does.
+I guess, I don't know, I guess I liked it. I didn't like the clean-up. I did all the pots and pans and that, but, um, yeah, it was just, it was almost, I guess, well into that category where this is what the woman does.
 
 She bakes, she cooks, she does laundry, but I never, I didn't really think about it any other way.
 
@@ -430,7 +428,7 @@ Ruth: He retired.
 
 Alexis: He retired? Is that when it stabilized when he retired?
 
-Ruth: Well, kind of, yes, because there was questionable things along the years, you know, was he going to get laid off or wasn't he? And so, to some degree, that's when it all stabilized when he retired.
+Ruth: Well, kind of, yes, because there was questionable things along the years, you know, was he going to get laid off, or wasn't he? And so, to some degree, that's when it all stabilized when he retired.
 
 We were, do you agree with that, Pap?
 
@@ -464,14 +462,14 @@ Ruth: Uncle Chris had to pay for his last semester.
 Alexis: How did, so, I guess I'd say, you must be good with money then, with budgeting.
 
 (32:38 - 33:15)
-Ruth: Um, yes. Yes, even with the, from the time I was single, I can remember there was a sweater wanted and I kept going back and looking at it and looking at it and looking at it and never bought it. My mother was saying to me about it, 'I think even if you had money, you still would be like that.' Yeah, I just really wouldn't be doing it.
+Ruth: Um, yes. Yes, even with the, from the time I was single, I can remember there was a sweater wanted and I kept going back, looking at it, looking at it, and looking at it and never bought it. My mother was saying to me about it, 'I think even if you had money, you still would be like that.' Yeah, I just really wouldn't be doing it.
 
 Alexis: Is there anything else you'd like to share, I guess, that I haven't asked about?
 
 Ruth: Well, when you said about the budgeting, that when we first got married, Pap said, if you can't afford to pay cash for it, you can't afford it.
 
 (33:16 - 33:56)
-Ruth: And I didn't have any problem with that. I was saving my drapes for the living room and I remember one of the, a woman said to me about, like, 'how could you do that?' Well, I wanted the drapes. You know, just save money, go ahead, but enough to get the drapes.
+Ruth: And I didn't have any problem with that. I was saving my drapes for the living room, and I remember one of the, a woman said to me about, like, 'how could you do that?' Well, I wanted the drapes. You know, just save money, go ahead, but enough to get the drapes.
 
 It might have sounded like a big challenge with Pap telling me, if you can't afford to pay cash for it, you can't afford it, but I was that type of person, too. If I didn't have, I was not like, well, you didn't have charge cards then, and I was, I saved. I put money aside till I got enough to do what I wanted to do.
 
@@ -482,7 +480,7 @@ Ruth: How did it come to be?
 
 Alexis: Yeah, like when you guys, is that a decision you guys made together?
 
-Ruth: When we first got married, he, check came home. The check went into his drawer, and I can remember one time, another check came, and that first check was still laying there.
+Ruth: When we first got married, he, check came home. The check went into his drawer, and I can remember one time, another check came, and that first check was still lying there.
 
 (34:23 - 34:47)
 Ruth: So, we were doing really well, but we tried for a while to let Pap run the finances, and that didn't seem to work too well. So, they let me work on them, and that didn't work too well, and then we tried both of us working them, and that didn't work too well, and we went back to me, and I just, I took care of everything ever since. I still take care of it.
@@ -528,7 +526,7 @@ Ruth: Oh, that was, yeah, after we lost Dana. Tom and I joined the Compassionate
 (40:01 - 41:12)
 Ruth: We were involved with that.
 
-Alexis: And then, I guess, did you, so you were, you grew up in the city, in Johnstown, like downtown Johnstown
+Alexis: And then, I guess, did you, so you were, you grew up in the city, in Johnstown, like downtown Johnstown.
 
 Ruth: Right
 
@@ -559,10 +557,10 @@ Tom: Yeah.
 
 Ruth: It was everybody that lived up there on the mountain, you know, relatives and others, and I told Pap I would not move up into that mountain if I, I would not have a phone on that mountain if I had to have a party line.
 
-I wasn't going to do it. So we got a semi-private, and his aunt across the road got one at the same time. We had to wait six months to get it because they had to run the lines, and then the party line wasn't, the semi-private, one other person, that wasn't working out the best either, and so Pap, because of what I was telling him when he came home, he'd say call and get a private line.
+I wasn't going to do it. So, we got a semi-private, and his aunt across the road got one at the same time. We had to wait six months to get it because they had to run the lines, and then the party line wasn't, the semi-private, one other person, that wasn't working out the best either, and so Pap, because of what I was telling him when he came home, he'd say call and get a private line.
 
 (42:49 - 46:46)
-Ruth: Well I wouldn't do that, and so Pap came home from work one day and he told me, he said 'I called today on the lunch hour and we ordered a private line.' So when his aunt lived across the road from us, that when we moved up there and got the semi-private, she got the semi-private, and then when I said I was getting the private, she got a private too. So she and I, the two of us at the first time got a, at the same time we got our private lines.
+Ruth: Well, I wouldn't do that, and so Pap came home from work one day and he told me, he said 'I called today on the lunch hour, and we ordered a private line.' So, when his aunt lived across the road from us, that when we moved up there and got the semi-private, she got the semi-private, and then when I said I was getting the private, she got a private too. So, she and I, the two of us at the first time got a, at the same time we got our private lines.
 
 Alexis: Was that Bertha?
 
@@ -588,7 +586,7 @@ Ruth: Relatives in?
 
 Tom: Just the five families and the offspring.
 
-Alexis: So it was just, it was just five families on the mountain?
+Alexis: So, it was just, it was just five families on the mountain?
 
 Tom: Yeah, and their offspring.
 
@@ -626,7 +624,7 @@ Ruth: Well, you either went academic or you went commercial, and so there were o
 
 Alexis: What, I guess, what is that, what's the difference? Like, what would academic mean for, like, high school, and what would commercial mean for high school? 
 
-Ruth: Well, like, the commercial, you took shorthand, you did typing, you did bookkeeping, and if you were going on to college, you didn't take those three things, at least. I mean, I still had, before, that was only 11th and 12th grade. 9th and 10th, they were just all the same classes.
+Ruth: Well, like the commercial, you took shorthand, you did typing, you did bookkeeping, and if you were going on to college, you didn't take those three things, at least. I mean, I still had, before, that was only 11th and 12th grade. 9th and 10th, they were just all the same classes.
 
 (46:46 - 47:39)
 Alexis: So, academic would be, like, college track, and then commercial would be workforce, like, entering the workforce track. So, I guess, during this time period, I know you mentioned that it was kind of maybe an expectation that women that were married wouldn't work, but was there an expectation that you would, upon graduating, that you would, like, while you were unmarried, you would work? 
@@ -656,23 +654,23 @@ Ruth: His dad's friend.
 
 Tom: Because their parents lived on that hill, Jim's parents lived on that hill, down there where that meadow was, and the house was gone already by the time I, when I was a kid and went up there.
 
-The house was gone, the only thing left was the foundation. He had 18 acres of ground. 
+The house was gone; the only thing left was the foundation. He had eighteen acres of ground. 
 
 Alexis: Did you used to play in that field as a kid, too? 
 
 Tom: Yeah, dad and I would go up there to his house, and Jim was building the house, and dad put the ridge pole up in the rafters, and this was an enormous house.
 
-It was like 37 feet wide and 50 feet long, stone cased, 
+It was like thirty-seven feet wide and fifty feet long, stone cased, 
 
-Alexis: So was Jim your dad's age? 
+Alexis: So, was Jim your dad's age? 
 
 Tom: Yeah, they were the same age. I don't know which one was six months older. 
 
-Alexis: So he would have been like my mom's grandfather's age, so he kind of would have been like a grandfatherly figure for them.
+Alexis: So, he would have been like my mom's grandfather's age, so he kind of would have been like a grandfatherly figure for them.
 
 Ruth: Or an uncle or something. 
 
-Tom: And everybody on the hill, no matter who, relatives or not, was aunt and uncle, grandma and grandpa, even if they weren't your grandma and grandpa. But that was how we showed respect.
+Tom: And everybody on the hill, no matter who, relatives or not, was aunt and uncle, grandma, and grandpa, even if they weren't your grandma and grandpa. But that was how we showed respect.
 
 Alexis: I guess we should probably say Pap is the term our family uses for grandfather. 
 
@@ -700,7 +698,7 @@ Alexis: I guess this might be a kind of a nebulous question. Where did the expec
 Tom: It's what you saw at home.
 
 (53:20 - 53:32)
-Alexis: So from your parents? 
+Alexis: So, from your parents? 
 
 Tom: Because you were growing up there, that's what you saw. 
 
@@ -709,15 +707,15 @@ Ruth: Yeah, I guess so. Yeah, I guess, you know, my father worked 42 years for t
 (53:33 - 56:55)
 Ruth: My mother was the homemaker. I prefer to say homemaker versus housewife, because I'm not a wife to the house, you know. That doesn't sound as good to me.
 
-I think a home, you're making a home. You're doing. 
+I think a home; you're making a home. You're doing. 
 
 Tom: You kept everything together.
 
 Ruth: It's like when we moved, we didn't move our house. We moved our home. We took our home with us.
 
-Alexis: So I guess you guys, so as by your own words, you didn't have much of a social life while you had the children. What was being empty nesters like for you then? Like this thing you spent almost all your time on, what did you guys, how did you guys adjust to that? 
+Alexis: So, I guess you guys, so as by your own words, you didn't have much of a social life while you had the children. What was being empty nesters like for you then? Like this thing you spent almost all your time on, what did you guys, how did you guys adjust to that? 
 
-Tom: I don't know. The kids are here until they were 28.
+Tom: I don't know. The kids are here until they were twenty-eight.
 
 Ruth: Right, we had them around, but Uncle Chris, he kind of came home from work and went to his bedroom and that and got to the point where Pap said to me, you know, quit waiting supper for him, because a lot of times he wouldn't eat anyhow. So we were, so to speak, adapting to that while we were together.
 
@@ -731,11 +729,11 @@ Alexis: Him being Pap?
 
 Ruth: Pap being Pap, yeah. Part of, I remember saying to him a lot of time in the early, earlier time, and I said to him, you talk a lot.
 
-I was used to being a home here by myself. You talk a lot. I didn't realize that about him until he was around.
+I was used to being at home here by myself. You talk a lot. I didn't realize that about him until he was around.
 
 Alexis: How long had you been married at that point? 
 
-Ruth: I don't remember. What was that? I'd say 57 minus 10, which was pushing 30 years.
+Ruth: I don't remember. What was that? I'd say fifty-seven minus 10, which was pushing 30 years.
 
 Alexis: You didn't know he talked a lot? 
 
@@ -772,4 +770,3 @@ Ruth: Or else I just don't remember him saying that before.
 
 Alexis: Okay.
 
-Insert transcript here
