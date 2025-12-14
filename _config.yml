@@ -121,7 +121,7 @@ collections:
     contributor: true
     creator: true
     group: true
-   authors:
+  authors:
     output: false
     name: true
 
