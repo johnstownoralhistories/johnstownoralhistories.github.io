@@ -16,7 +16,7 @@ tags: [ Demko Family ]
 teammember: "Alexis Shoulta"
 ---
 
-## Interview Summary
+## Interview Summary 
 
 Alexis Shoulta interviewed Thomas Demko on October 5, 2025.
 
