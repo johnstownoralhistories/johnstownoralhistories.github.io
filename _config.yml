@@ -121,8 +121,8 @@ collections:
     creator: true
     format: true
     group: true
-  authors: false
-    output: 
+   authors:
+    output: false
     name: true
 
 ##############################################
