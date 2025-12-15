@@ -315,7 +315,7 @@ Ruth: Well, I mean, I guess it had to be difficult, challenging, what happened t
 Ruth: I know, you know, how we made it. I don't know just how some of the other ones made it. Oh, I know of a couple that, he was left go, I think it was like three months before he could have, not old enough, but ten-year-wise, he could have retired.
 
 (30:10 - 30:22)
-Ruth: It was three months short, and they left him go. And I do know his wife went out and started paying comms. That led one way or another, they were taking care of themselves.
+Ruth: It was three months short, and they left him go. And I do know his wife went out and started cleaning homes. That led one way or another, they were taking care of themselves.
 
 (30:25 - 30:54)
 Alexis: And then, do you know of anybody with experiences you think I should reach out to for this oral history project? 
