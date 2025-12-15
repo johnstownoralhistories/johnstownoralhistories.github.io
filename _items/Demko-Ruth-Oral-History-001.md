@@ -197,7 +197,9 @@ Ruth: Go where we could find a job, whatever that meant.
 (13:56 - 14:50)
 Ruth: There were probably some exceptions, depending on, I'm thinking like New York, Chicago, California, I mean, there were probably some exceptions where we would have been willing to offer a move, but generally speaking, we had to be open to moving to where we could find work. 
 
-Alexis: And then, where did you end up moving to? We, our first move was Tom went to Terre Haute, Indiana, and he was there a year by himself, only getting home to visit us every three weeks. And after a year, we decided we had enough of that, we decided to move ourselves to Terre Haute, which we did.
+Alexis: And then, where did you end up moving to? 
+
+Ruth: We, our first move was Tom went to Terre Haute, Indiana, and he was there a year by himself, only getting home to visit us every three weeks. And after a year, we decided we had enough of that, we decided to move ourselves to Terre Haute, which we did.
 
 (14:51 - 15:39)
 Ruth: He left on June 1st of, this was eighty-four, and the children wound up on June 2nd of 85. And we were over in Terre Haute for, till up from June till October, and he got laid off again, and then we were back in a strange city without a job, but he was able to find something for himself. And then he got a job contracting in Indianapolis, and he commuted daily from well Monday, he did work some Saturdays, but he didn't work Sundays, back and forth to Indianapolis for the work to Terre Haute.
