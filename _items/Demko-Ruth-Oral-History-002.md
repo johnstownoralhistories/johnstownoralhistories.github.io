@@ -99,7 +99,7 @@ Can you kind of describe what your day was like as a housewife at home while you
 Ruth: Of course, take care of the children and make meals. I cleaned, did the cleaning.
 
 (1:45 - 2:55)
-Ruth: I don't know. My mother lived with us for about three and a half years and so she wants some care. I'm not sure what else to say.
+Ruth: I don't know. My mother lived with us for about three and a half years and so she required some care. I'm not sure what else to say.
 
 Alexis: I guess, could you, would you be able to give me an example of like what a day would be like? Like you'd wake up and then you would do this, like if you if you remember like what like your average like what your schedule would kind of be like you'd wake up and you'd like get ready for the day and then you do this for the kids like you kind of give me maybe a schedule?
 
