@@ -190,7 +190,9 @@ Alexis: And then, outside of your own family, did you witness any changes in Joh
 
 Ruth: Well, some of the mills closed. People left town, although I can remember there was one couple that they were not willing to leave town, they had a job opportunity in Texas through relatives, and they chose to turn the offer down and stay in Johnstown with unemployment, which is something we did not choose to do. 
 
-Alexis: What did you choose to do instead? Go where we could find a job, whatever that meant.
+Alexis: What did you choose to do instead? 
+
+Ruth: Go where we could find a job, whatever that meant.
 
 (13:56 - 14:50)
 Ruth: There were probably some exceptions, depending on, I'm thinking like New York, Chicago, California, I mean, there were probably some exceptions where we would have been willing to offer a move, but generally speaking, we had to be open to moving to where we could find work. 
