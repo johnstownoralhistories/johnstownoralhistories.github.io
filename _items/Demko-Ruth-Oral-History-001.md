@@ -80,7 +80,11 @@ Ruth: My husband worked in the steel industry from the time we got married to, I
 
 Alexis: What, can you say what decade it was? Do you know which decade it was? 
 
-Ruth: In the early eighties, maybe, 81, Is there anything else you'd like to tell me about your family history? When we moved back to Johnstown, we lived with my grandmother, and my grandfather was living at the time. I lived in the same household as my mother's sister, who was 19 years younger than she was, and was my mother's aunt, she was my great aunt.
+Ruth: In the early eighties, maybe, 81, 
+
+Alexis: Is there anything else you'd like to tell me about your family history? 
+
+Ruth: When we moved back to Johnstown, we lived with my grandmother, and my grandfather was living at the time. I lived in the same household as my mother's sister, who was 19 years younger than she was, and was my mother's aunt, she was my great aunt.
 
 (3:21 - 4:00)
 Ruth: And then after we moved there, in about a couple of months, then my younger sister was born, and in 1943, six weeks before I was three, I'm trying to think, my two grandfathers died. One, I don't remember, maybe it was three weeks before I was three. Right, one grandfather, I guess it was the one in Wheeling, died.
