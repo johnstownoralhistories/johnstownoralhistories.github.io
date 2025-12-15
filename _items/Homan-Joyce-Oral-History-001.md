@@ -17,6 +17,8 @@ teammember: "Alexis Shoulta"
 ---
 
 ## Interview Summary
+Alexis Shoulta interviewed Joyce Homan over Zoom on Decmber 9, 2025.
+
 Joyce Homan was born May 3rd, 1970, in Johnstown, Pennsylvania. She lived in Johnstown until she graduated high school and moved to Philadelphia for college. She has since returned and works as a librarian at the local library.
 
 Both of Joyce's parents were born and raised in Johnstown. Her father was a second generation Ukrainian American, and her mother's family had been in Pennsylvania since the 1700s. Her father worked on the floor as a laborer for [Bethlehem Steel](https://www.loc.gov/item/pa3036/) and most of her male family members of both sides of her family worked in with the [steel mills](https://nmihbethlehemsteel.omeka.net/items/show/1062) or the mines.[^2]
