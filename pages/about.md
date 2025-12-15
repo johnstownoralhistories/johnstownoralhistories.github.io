@@ -13,6 +13,7 @@ Lorem ipsum dolor sit amet consectetur adipiscing elit. Quisque faucibus ex sapi
 Footnotes will format to the very bottom of this page
 
 # Project Methodology
+### Alexis Shoulta 12/14/2025
 
 ## Introduction:
 A few years ago, my mother decided that she would begin driving her parents back to their hometown of Johnstown, Pennsylvania at least once a year. They were growing older, and she wanted them to spend more time with their remaining family. During the summer of 2023, I joined them on one of these trips back. Although I had made the trip to Johnstown many times, for family reunions, funerals, and stops on road trips to Pittsburgh, I had never made the entirety of the trip alongside my grandparents. Feeling the weight of the passage of time, I was determined to not waste what might be my last opportunity to see Pennsylvania through their eyes. 
