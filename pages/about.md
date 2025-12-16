@@ -114,24 +114,24 @@ By centering the voices of wives and children, this paper challenges narratives 
 ## Works Cited:
 Note: Footnotes will format to the very bottom of the page
 
-Coontz, Stephanie. The Way We Never Were: American Families and the Nostalgia Trap. BasicBooks, 1992. 
-Harris, Katelynn. “Forty Years of Falling Manufacturing Employment.” Beyond the Numbers - Bureau of Labor Statistics 9, no. 16 (2020). https://www.bls.gov/opub/btn/volume-9/forty-years-of-falling-manufacturing-employment.htm. 
+Coontz, Stephanie. _The Way We Never Were: American Families and the Nostalgia Trap_. BasicBooks, 1992. 
+Harris, Katelynn. “Forty Years of Falling Manufacturing Employment.” Beyond the Numbers - Bureau of Labor Statistics 9, no. 16 (2020). [https://www.bls.gov/opub/btn/volume-9/forty-years-of-falling-manufacturing-employment.htm.](https://www.bls.gov/opub/btn/volume-9/forty-years-of-falling-manufacturing-employment.htm) 
 
-Morawska, Ewa T. For Bread with Butter : The Life-Worlds of East Central Europeans in Johnstown, Pennsylvania, 1890-1940 /. Cambridge University Press, 1985. 
+Morawska, Ewa T. _For Bread with Butter : The Life-Worlds of East Central Europeans in Johnstown, Pennsylvania, 1890-1940_ /. Cambridge University Press, 1985. 
 
-Olson, Karen. Wives of Steel: Voices of Women from the Sparrows Point Steelmaking Communities. Pennsylvania State University Press, 2005. 
+Olson, Karen. _Wives of Steel: Voices of Women from the Sparrows Point Steelmaking Communities_. Pennsylvania State University Press, 2005. 
 
-Shoulta, Alexis, dir. Joyce Homan Oral History. 2025. Oral History, 33:11. Johnstown Oral Histories (Our Collections). https://johnstownoralhistories.github.io/items/Homan-Joyce-Oral-History-001.html. 
+Shoulta, Alexis, dir. _Joyce Homan Oral History_. 2025. Oral History, 33:11. Johnstown Oral Histories (Our Collections). [https://johnstownoralhistories.github.io/items/Homan-Joyce-Oral-History-001.html.](https://johnstownoralhistories.github.io/items/Homan-Joyce-Oral-History-001.html)) 
 
-Shoulta, Alexis, dir. Karen Shoulta Oral History. 2025. Oral History, 41:05. Johnstown Oral Histories (Our Collections). https://johnstownoralhistories.github.io/items/Karen-Shoulta-Oral-History.html. 
+Shoulta, Alexis, dir. _Karen Shoulta Oral History_. 2025. Oral History, 41:05. Johnstown Oral Histories (Our Collections). [https://johnstownoralhistories.github.io/items/Karen-Shoulta-Oral-History.html.](https://johnstownoralhistories.github.io/items/Shoulta-Karen-Oral-History-001.html)
 
-Shoulta, Alexis, dir. Ruth Demko Oral History 1. 2025. Oral History, 31:41. Johnstown Oral Histories (Our Collections). https://johnstownoralhistories.github.io/items/Demko-Ruth-Oral-History-001.html. 
+Shoulta, Alexis, dir. _Ruth Demko Oral History 1_. 2025. Oral History, 31:41. Johnstown Oral Histories (Our Collections). [https://johnstownoralhistories.github.io/items/Demko-Ruth-Oral-History-001.html.](https://johnstownoralhistories.github.io/items/Demko-Ruth-Oral-History-001.html) 
 
-Shoulta, Alexis, dir. Ruth Demko Oral History 2. 2025. Oral History, 57:02. Johnstown Oral Histories (Our Collections). https://johnstownoralhistories.github.io/items/Demko-Ruth-Oral-History-002.html. 
+Shoulta, Alexis, dir. _Ruth Demko Oral History 2_. 2025. Oral History, 57:02. Johnstown Oral Histories (Our Collections). [https://johnstownoralhistories.github.io/items/Demko-Ruth-Oral-History-002.html.](https://johnstownoralhistories.github.io/items/Demko-Ruth-Oral-History-002.html) 
 
-Taft, Chloe E. “Deindustrialization and the Postindustrial City, 1950–Present.” In Oxford Research Encyclopedia of American History. n.d. Accessed December 15, 2025. https://oxfordre.com/americanhistory/display/10.1093/acrefore/9780199329175.001.0001/acrefore-9780199329175-e-574.
+Taft, Chloe E. “Deindustrialization and the Postindustrial City, 1950–Present.” In _Oxford Research Encyclopedia of American History_. n.d. Accessed December 15, 2025. [https://oxfordre.com/americanhistory/display/10.1093/acrefore/9780199329175.001.0001/acrefore-9780199329175-e-574.](https://oxfordre.com/americanhistory/display/10.1093/acrefore/9780199329175.001.0001/acrefore-9780199329175-e-574)
 
-Wallace, Kim E., ed. The Character of a Steel Mill City : Four Historic Neighborhoods of Johnstown, Pennsylvania / Kim E. Wallace, Editor ; with Contributions by Natalie Gillespie ... With Natalie Gillespie, Bernadette Goslin, Terri L. Hartman, Jeffrey Hickey, Cheryl Powell, and Kim E. Wallce. Historic American Buildings Survey/Historic American Engineering Record, National Park Service, 1989. https://hdl.handle.net/2027/mdp.39015013961852?urlappend=%3Bseq=5. 
+Wallace, Kim E., ed. _The Character of a Steel Mill City : Four Historic Neighborhoods of Johnstown, Pennsylvania / Kim E. Wallace, Editor ; with Contributions by Natalie Gillespie ... With Natalie Gillespie_, Bernadette Goslin, Terri L. Hartman, Jeffrey Hickey, Cheryl Powell, and Kim E. Wallce. Historic American Buildings Survey/Historic American Engineering Record, National Park Service, 1989. https://hdl.handle.net/2027/mdp.39015013961852?urlappend=%3Bseq=5. 
 
 # Project Methodology
 ### Alexis Shoulta 12/14/2025
