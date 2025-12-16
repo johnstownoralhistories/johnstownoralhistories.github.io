@@ -23,6 +23,7 @@ Ewa Morawska, in _For Bread with Butter: The Life-Worlds of East Central Europea
 In _Wives of Steel_, Karen Olson builds on the work of Stephanie Coontz, applying gendered analysis the labor of women in the steelmaking community of Sparrows Point, Maryland.[^4] Through her analysis of the history of Sparrows Point, Olson criticizes the rise and fall narrative of the steel industry that only centralizes the role of white men and obscures the economic disenfranchisement of workers of color and the economic contributions of women.[^5] 
 
 This project builds on these scholars by shifting the oral history focus from industrialized work itself to the impacts felt by family as participants. Rather than examining deindustrialization as a singular event, this paper treats it as prolonged process, felt across decades and generations. Through this lens I study how deindustrialization impacted gender roles, caregiving responsibilities, and childhood experiences within steelworker households in Johnstown. By using the oral histories of wives and children this study addresses this archival silence and contributes a more comprehensive understanding of how industrial decline impacts an entire community.
+
 [^1]: Coontz, _The Way We Never Were_, 9.
 [^2]: Coontz, _The Way We Never Were_, 391–92.
 [^3]: Morawska, _For Bread with Butter_, 298–300.
