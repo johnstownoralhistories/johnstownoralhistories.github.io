@@ -90,7 +90,7 @@ Alexis: And then where and when were you born?
 
 Joyce: I was born May 3rd, 1970, in Johnstown, Pennsylvania.
 
-(0:51 - 11:04)
+(0:51 - 6:55)
 Alexis: And where do you currently live? 
 
 Joyce: I live in Mineral Point, Pennsylvania. 
@@ -165,7 +165,7 @@ Joyce: That's a good question. I don't think my dad was opposed particularly to 
 
 So, she had multiple surgeries when we were kids and yeah, there was just, so I don't think she could have done both. I don't think she could have had kids and worked as well, would have been too hard on her physically. So, but my dad, I guess what I'm saying is my dad, I don't think would have been opposed. 
 
-He wasn't quite like, like he definitely was into traditional gender roles, but he wasn't like, oh, my wife isn't going to work. He wasn't like that. 
+(6:55 - 11:06) Joyce: He wasn't quite like, like he definitely was into traditional gender roles, but he wasn't like, oh, my wife isn't going to work. He wasn't like that. 
 
 Alexis: And then was your family impacted by the layoffs and Johnstown? 
 
