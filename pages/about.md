@@ -159,7 +159,7 @@ Digital platforms also create a greater opportunity for accessibility for people
 
 [^38]:  High, “Brownfield Public History,” 435.
 
-[^39]: Karen Shoulta Oral History, at (6:50-13:53).
+[^39]: _Karen Shoulta Oral History_, at (6:50-13:53).
 
 ## Building the Digital Archive
 This project encouraged me to think beyond the paradigm of traditional historical research framework. For my project, constructing a digital archive functioned not only as a distribution method for original research, but as a form of methodological labor. The UI design choices for the archive serve as historical storytelling mechanisms, as well as navigational, interpretive, and organizational tools for the viewer. Working with GitHub allowed me to think as a traditional historian alongside being a builder of digital infrastructure.
@@ -235,13 +235,13 @@ This project demonstrates how digital archives and oral history can work togethe
 ## Works Cited
 Footnotes format to the very bottom of the page.
 
-High, Steven. “Brownfield Public History: Arts and Heritage in the Aftermath of Deindustrialization.” In The Oxford Handbook of Public History, edited by Paula Hamilton and James B. Gardner. Oxford University Press, 2017. [https://doi.org/10.1093/oxfordhb/9780199766024.013.23.](https://academic-oup-com.proxyiub.uits.iu.edu/edited-volume/34632/chapter/295066421)
+High, Steven. “Brownfield Public History: Arts and Heritage in the Aftermath of Deindustrialization.” In _The Oxford Handbook of Public History_, edited by Paula Hamilton and James B. Gardner. Oxford University Press, 2017. [https://doi.org/10.1093/oxfordhb/9780199766024.013.23.](https://academic-oup-com.proxyiub.uits.iu.edu/edited-volume/34632/chapter/295066421)
 
 Shopes, Linda. “Making Sense of Oral History – Oral History in the Digital Age.” Institute of Museum and Library Services, n.d. Accessed January 27, 2025. [https://ohda.matrix.msu.edu/2012/08/making-sense-of-oral-history/.](https://ohda.matrix.msu.edu/2012/08/making-sense-of-oral-history/)
 
 Shoulta. “Johnstown Oral Histories Github Actions.” April 15, 2025, December 12, 2025. [https://github.com/johnstownoralhistories/johnstownoralhistories.github.io/actions.](https://github.com/johnstownoralhistories/johnstownoralhistories.github.io/actions) 
 
-Shoulta, Alexis, dir. Karen Shoulta Oral History. 2025. Oral History, 41:05. Johnstown Oral Histories (Our Collections). [https://johnstownoralhistories.github.io/items/Shoulta-Karen-Oral-History-001.html](https://johnstownoralhistories.github.io/items/Shoulta-Karen-Oral-History-001.html)
+Shoulta, Alexis, dir. _Karen Shoulta Oral History_. 2025. Oral History, 41:05. Johnstown Oral Histories (Our Collections). [https://johnstownoralhistories.github.io/items/Shoulta-Karen-Oral-History-001.html](https://johnstownoralhistories.github.io/items/Shoulta-Karen-Oral-History-001.html)
 
 # Footnotes
 
